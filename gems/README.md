@@ -1,7 +1,7 @@
 
 # Gems
 
-- 🔴DOI: help fix humanity's most challengeing problems 
+- 🔴[DOI](doi.md): help fix humanity's most challengeing problems 
 - 🌞SolarFarm: High APY BNB miner
 - 🐂Boolish: building the Poocoin of Cronos Chain
 - 🏦CryptoVault: give and share crypto with anyone
