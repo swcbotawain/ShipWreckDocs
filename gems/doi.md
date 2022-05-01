@@ -20,3 +20,13 @@ We shall only provide funding to projects that DOIC token holders deem as viable
 
 Presale now live - buy 800,000 DOIC per BNB
 
+: Buttons
+> :Button label=Website, url=https://thedoicoin.com
+
+> :Button label=Telegram, url=https://t.me/doifoundation
+
+: Buttons
+> :Button label=Discord, url=https://www.Discord.gg/DOI
+
+> :Button label=AMA, url=https://t.me/shipwreckcoveama/122
+
