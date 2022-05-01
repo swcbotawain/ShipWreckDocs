@@ -1,5 +1,5 @@
 # Welcome
 - [Gems](gems/) 
 - Partners
-- Marketing
+- [Marketing](marketing/)
 
