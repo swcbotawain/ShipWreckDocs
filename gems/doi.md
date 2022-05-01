@@ -1,5 +1,7 @@
-[DOI](https://files.catbox.moe/u0hxus.jpg) 
+
 # DOI Coin
+
+![DOI](https://files.catbox.moe/u0hxus.jpg) 
 
 The crypto coin for the people, by the people
 Help us find, fund, & fix humanity’s most challenging problems.
