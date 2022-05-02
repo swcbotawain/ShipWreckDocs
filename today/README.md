@@ -20,7 +20,7 @@
 18:00 | PP |  [EstateX](https://t.me/estatexofficial)
 
 
-**_Data provided by 3rd party_**
+**Data is provided by 3rd party**
 
 Please DYOR and only invest what you can afford to lose
 
