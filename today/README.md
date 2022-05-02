@@ -1,11 +1,9 @@
 
-# Today
+# Today's Tracked Projects
 
 ![ShipWreck Cove](https://files.catbox.moe/24q2m5.jpg) 
 
-
-**Today's (05/02) Tracked Projects:**
-**Times are in GMT**
+**For 05/02 | Times are in GMT**
 
 🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️
 
