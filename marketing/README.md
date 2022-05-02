@@ -5,14 +5,14 @@ For business inquiries, please contact [@Bluamber](https://t.me/bluamber)
 
 🏴‍☠️⚓️🏴‍☠️⚓️🏴‍☠️⚓️🏴‍☠️⚓️🏴‍☠️⚓️🏴‍☠️
 
-🚨Important: We will only broadcast fundamentally strong utility projects UNLESS you are launching a moonshot and our community is the first call and you have good marketing plans to push the moonshot. 
-__
+🚨Important: We will only broadcast fundamentally strong utility projects **UNLESS**  you are launching a moonshot and our community is the first call and you have good marketing plans to push the moonshot. 
 
-Audit (Preferred) 
-Contract to be checked 
-Poocoin chart
-Whitepaper and/or roadmap
-Website + Group Links
+
+- Audit (Preferred) 
+- Contract to be checked 
+- Poocoin chart
+- Whitepaper and/or roadmap
+- Website + Group Links
 
 __
 
