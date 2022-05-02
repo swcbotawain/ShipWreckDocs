@@ -26,9 +26,9 @@ Please DYOR and only invest what you can afford to lose
 ## Key
 Key meanings in the Today list:
 
-PV - Private Sale
-WL - WhiteList
-PP - Public Presale
-LA - Launch
-NF - NFT
-UN - Unicrypt
+- PV - Private Sale
+- WL - WhiteList
+- PP - Public Presale
+- LA - Launch
+- NF - NFT
+- UN - Unicrypt
