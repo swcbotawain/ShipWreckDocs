@@ -11,7 +11,7 @@ Then you're in the right place
 - [Gems](gems/) 
 - Partners
 - [Marketing](marketing/)
-- [Today's Tracked lLaunches](today/)
+- [Today's Tracked Launches](today/)
 
 ## Our Links
 - [Telegram](https://t.me/Shipwreckc0ve)
