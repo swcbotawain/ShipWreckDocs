@@ -16,3 +16,5 @@ Launched April 25th. Based team and marketing guys backing it. Potential moonsho
 - [Telegram](https://t.me/SolarFarmMinerOfficial) 
 - [dApp](http://app.solarfarm.finance/?ref=0x131Da3B2Fb6160c4Cb3856a2850286217202E5CA)
 - [Medium](https://medium.com/@solarfarmminer/solar-farm-miner-welcome-to-our-protocol-23bf04ee7133)
+
+[**Back to Gems** ](https://shipwreckc0ve.gitbook.io/shipwreck-cove/gems)
