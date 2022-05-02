@@ -1,5 +1,7 @@
 
-# Not Financial Advice Disclaimer
+# Disclaimer
+
+## Not Financial Advice Disclaimer
 
 **Disclaimer for https://shipwreckc0ve.gitbook.io/** 
 
