@@ -14,12 +14,13 @@ For business inquiries, please contact [@Bluamber](https://t.me/bluamber)
 - Whitepaper and/or roadmap
 - Website + Group Links
 
-__
 
-Links to our socials
+## Links to our socials
 
 [Twitter](https://twitter.com/Shipwreckc0ve)
 
 [Our Group](https://t.me/Shipwreckc0ve)
+
+## Please Note 
 
 We receive a huge volume of requests daily, each project takes a considerable amount of time to safety check, so please be patient on a response.
