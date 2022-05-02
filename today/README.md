@@ -1,5 +1,5 @@
 
-# Today's Tracked Launches 
+# Today's Tracked Launches
 
 ![ShipWreck Cove](https://files.catbox.moe/24q2m5.jpg) 
 
@@ -19,7 +19,8 @@
 
 18:00 | PP |  [EstateX](https://t.me/estatexofficial)
 
-**_Data provided by 3rd party_ ** 
+
+**_Data provided by 3rd party_**
 
 Please DYOR and only invest what you can afford to lose
 
