@@ -14,5 +14,6 @@ Then you're in the right place
 - [Today's tracked launches](today/)
 
 ## Our Links
-[Linktree](https://linktr.ee/shipwreckc0ve)
+[Telegram](https://t.me/Shipwreckc0ve)
+[All links](https://linktr.ee/shipwreckc0ve)
 
