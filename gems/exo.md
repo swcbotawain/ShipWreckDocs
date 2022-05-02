@@ -13,3 +13,5 @@ The EXO platform also includes a whole suite of utilities including launchpad, N
 $EXO utility token unlocks many of the new features listed above. $EXO holders can stake or farm their token for additional rewards and a share of profit from fees on EXO DApps. $EXO is backed by a unique rising-peg mechanic, using sustainable exchange revenue to support an ever-increasing price floor
 
 [All Links](https://linktr.ee/ExoLabs)
+
+[**Back to Gems** ](https://shipwreckc0ve.gitbook.io/shipwreck-cove/gems)
