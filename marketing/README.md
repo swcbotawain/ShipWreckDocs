@@ -1,7 +1,7 @@
 # Marketing
 💸Wanting to have your Project promoted at the Cove? 
 
-For business inquiries, please contact [@Bluamber](https://t.me/bluamber)
+For business inquiries, please contact [@Bluamber](https://t.me/bluamber) on Telegram
 
 🏴‍☠️⚓️🏴‍☠️⚓️🏴‍☠️⚓️🏴‍☠️⚓️🏴‍☠️⚓️🏴‍☠️
 
