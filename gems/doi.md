@@ -1,5 +1,5 @@
 
-# DOI Coin
+# DOI Coin 🔴
 
 ![DOI](https://files.catbox.moe/u0hxus.jpg) 
 
