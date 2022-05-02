@@ -1,7 +1,7 @@
 
-# Xilence 
+# Xilence 🟨
 
-[![](https://files.catbox.moe/mhvkuq.jpg)](https://files.catbox.moe/ll1der.mov)
+[![](https://files.catbox.moe/mhvkuq.jpg](https://files.catbox.moe/ll1der.mov)
 
 Our mission is to make investors more aware of great projects and project owners more aware of investors needs as the same time provide a robust platform to achieve those outcomes. To provide ongoing incentives for both offering parties and investors to bring better outcomes in their respective goals.
 
