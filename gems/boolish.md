@@ -13,9 +13,9 @@ V1 platform is launched, V2 will include an all new charting API. Also in develo
 **Taxes** : 
 11% Buy and Sell
 
-3% to LP
-5% to Marketing
-3% to Treasury
+- 3% to LP
+- 5% to Marketing
+- 3% to Treasury
 
 ## Links
 
