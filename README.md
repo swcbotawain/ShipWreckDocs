@@ -2,7 +2,11 @@
 
 ![ShipWreck Cove](https://files.catbox.moe/24q2m5.jpg) 
 
-Welcome ShipWreck Cove Looking to find and share legit projects | Catch up on crypto news | Hang out with fellow crypto enthusiast, then you're in the right place
+Welcome **ShipWreck Cove** 
+
+Looking to find and share legit projects | Catch up on crypto news | Hang out with fellow crypto enthusiast? 
+
+Then you're in the right place
 
 - [Gems](gems/) 
 - Partners
