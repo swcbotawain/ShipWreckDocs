@@ -1,4 +1,4 @@
-# CryptoVault
+# CryptoVault 🏦
 
 ![](https://files.catbox.moe/71hqdb.jpg)
 
