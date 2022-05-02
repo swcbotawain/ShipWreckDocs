@@ -20,3 +20,5 @@ Decentralized application with modular play & earn functionalities
 - [Twitter](https://www.twitter.com/ENCTR_Official) 
 - [Discord](https://discord.com/invite/SwEEyNZzJx)
 - [Telegram](https://t.me/EncountrOfficial)
+
+[**Back to Gems** ](https://shipwreckc0ve.gitbook.io/shipwreck-cove/gems)
