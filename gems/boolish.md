@@ -24,3 +24,6 @@ V1 platform is launched, V2 will include an all new charting API. Also in develo
 - [Website](https://www.boolish.net)
 - [Telegram](https://t.me/boolishcro)
 - [Chart](https://boolish.app/#/main/chart?contract=0x5ad4e677be4faa83587ba823add893b9701beb4a)
+
+
+[**Back to Gems** ](../)
