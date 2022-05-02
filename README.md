@@ -9,7 +9,6 @@ Looking to find and share legit projects | Catch up on crypto news | Hang out wi
 Then you're in the right place
 
 - [Gems](gems/) 
-- Partners
 - [Marketing](marketing/)
 - [Today's Tracked Launches](today/)
 
