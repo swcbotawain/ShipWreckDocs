@@ -3,7 +3,7 @@
 
 [![](https://files.catbox.moe/r4b8yr.jpg)](https://files.catbox.moe/15bsc0.mp4)
 
-A new standard for GameFi | dApp & In-Game Client | Software Company x Gaming Org | Launches April 30th | Fully Doxxed Team | Modular Release Cycle
+A new standard for GameFi | dApp & In-Game Client | Software Company x Gaming Org | Launches May 16th | Fully Doxxed Team | Modular Release Cycle
 
 The Encountr Token [$ENCTR] is a new GameFi project launching on the Polygon network, May 16th.
 
