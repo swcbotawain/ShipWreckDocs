@@ -15,5 +15,5 @@ Then you're in the right place
 
 ## Our Links
 - [Telegram](https://t.me/Shipwreckc0ve)
-- [Linktree](https://linktr.ee/shipwreckc0ve)
+- [All Links](https://linktr.ee/shipwreckc0ve)
 
