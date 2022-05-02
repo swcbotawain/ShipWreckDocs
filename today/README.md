@@ -1,6 +1,8 @@
 
 # Today
- ![ShipWreck Cove](https://files.catbox.moe/24q2m5.jpg) 
+
+![ShipWreck Cove](https://files.catbox.moe/24q2m5.jpg) 
+
 
 *Today's (05/02) Tracked Projects:*
 *Times are in GMT*
