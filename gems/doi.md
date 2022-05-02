@@ -30,4 +30,4 @@ Presale now live - buy 800,000 DOIC per BNB
 - [AMA](https://t.me/shipwreckcoveama/122)
 
 
-[**Back to Gems** ](../)
+[**Back to Gems** ](/shipwreck-cove/gems)
