@@ -1,9 +1,7 @@
 
-# Today's Tracked Launches
+# Today's Tracked Launches 
 
 ![ShipWreck Cove](https://files.catbox.moe/24q2m5.jpg) 
-
-_Data provided by a 3rd party_ 
 
 **For 05/02 | Times are in GMT**
 
@@ -20,6 +18,8 @@ _Data provided by a 3rd party_
 18:00 | LA |  [TucanaFinance](https://t.me/TucanaFinance)
 
 18:00 | PP |  [EstateX](https://t.me/estatexofficial)
+
+**_Data provided by 3rd party_ ** 
 
 Please DYOR and only invest what you can afford to lose
 
