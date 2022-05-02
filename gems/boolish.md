@@ -1,7 +1,5 @@
 # Boolish
 
-![](//files.catbox.moe/zqhc9m.mp4)
-
 https://m.youtube.com/watch?v=tth2MNaaw6Y
 
 
