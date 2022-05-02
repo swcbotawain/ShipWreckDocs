@@ -1,5 +1,6 @@
 # Boolish
 
+![](https://files.catbox.moe/7jfrqe.jpg)
 
 The Poocoin of the Cronos Network! Taking Cronos by storm with the charting/portfolio tracker app we all wish we had! Boolish is meant to make trading SO much easier for traders coming from other chains while providing exclusive perks for our loyal holders. 
 
