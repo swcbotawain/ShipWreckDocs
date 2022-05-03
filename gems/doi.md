@@ -26,7 +26,7 @@ Presale now live - buy 800,000 DOIC per BNB
 - [Website](https://thedoicoin.com) 
 - [Telegram](https://t.me/doifoundation) 
 - [Discord](https://www.Discord.gg/DOI)
-- [Presale](https://bit.ly/3iGUFMI)
+- [Presale](https://bit.ly/3FalROB)
 - [AMA](https://t.me/shipwreckcoveama/122)
 
 [**Back to Gems** ](https://shipwreckc0ve.gitbook.io/shipwreck-cove/gems)
