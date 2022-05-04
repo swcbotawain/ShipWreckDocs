@@ -3,13 +3,28 @@
 
 ![Solar Farm](https://files.catbox.moe/ejx9z3.jpg)
 
-14.3% Daily Payout and 12% Referral Bonus ✅
+Growing steadily since the April 25th launch, team are always active marketing and pushing developments. They've now started opening up more frequent VCs.
 
-🔋 ♻️ 🤑 Solar Farm Miner is the first Environmentally friendly BNB Miner. Working day and night, even while you sleep to generate Watts for the investors. 
+- 440+ BNB in TVL
+- Moonarch listed 
+- DappRadar listed 
+- Multiple YouTube Video Reviews 
+- Signed first ambassador,  CryptoKingdome78 for YouTube Videos, AMAs and Twitter posts
+- Held first AMA in Shipwreck Cove
+- Multiple external AMAs lined up
+- Active chat and team 
+- Frequent Marketing/Development 
+- Team Expansion
 
-Use Watts to build more Solar Panels, compound twice a day for 6 days then withdraw your BNB initials / profits for best APY. 6% Maintenance / Marketing Fees. 
+Upcoming Developments : 
+Solar Farm Token (WL Presale)
+Solar Pad (Launchpad)
+Solar Verse (Games)
 
-Launched April 25th. Based team and marketing guys backing it. Potential moonshot. DYOR  
+14.28% Daily APR
+5214.28% Yearly APR
+6% Maintenance Fee
+12.5% Referral
 
 ## Links
 - [Announcements](https://t.me/SolarFarmMiner_announcements)
