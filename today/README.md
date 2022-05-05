@@ -3,24 +3,29 @@
 
 ![ShipWreck Cove](https://files.catbox.moe/24q2m5.jpg) 
 
-**For May 4th | Times are in GMT**
+**For May 5th | Times are in GMT**
 
 🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️
 
+TBA  | WL |  [AllStarX](https://t.me/AllStarXI)
 
- `TBA  | WL |`  [AntiJeet](https://t.me/antijeetbsc)
+ TBA  | LA |  [AnimalFarm (Pigs)](https://t.me/The_Animal_Farm)
 
-`13:00 | PP |` [📲](https://www.pinksale.finance/#/launchpad/0x00483b76576Cd52ad8Fd7f965fE3753D77167b9a?chain=BSC) [GoRideBSC](https://t.me/GoRideBSC)
+ TBA  | WL |  [Catverse](https://t.me/catverse_portal)
 
-`15:00 | UN |` [📲](https://app.unicrypt.network/amm/pancake-v2/ilo/0x220b28d308AE234b069EDC0F7d49e4eC387bEfcB) [CreedDAO](https://t.me/creeddaobsc)
+ TBA  | FL |  [MetaBilliards](https://t.me/metabilliards)
 
-`16:00 | FL |`  [FlovMarket](https://t.me/flov_market)
+13:00 | LA | [📲](https://www.pinksale.finance/#/launchpad/0x00483b76576Cd52ad8Fd7f965fE3753D77167b9a?chain=BSC) [GoRideBSC](https://t.me/GoRideBSC)
 
-`16:00 | LA |`  [LemonApeStand](https://t.me/LemonApeStand)
+13:00 | LA |  [AntiJeet](https://t.me/antijeetbsc)
 
-`17:00 | LA |`  [BUSDKitty](https://t.me/Busdkittyportal)
+15:00 | WL |  [BitzzaFinance](https://t.me/bitzza_finance)
 
-`17:00 | LA |`  [RocketGlobal](https://t.me/myrocketglobal)
+15:00 | PP |  [Cycling](https://t.me/CYC_OFFICIAL)
+
+17:00 | WL |  [TitanX](https://t.me/TitanXProject)
+
+18:00 | LA |  [CatBread](https://t.me/Cat_Bread)
 
 
 **Data is provided by 3rd party**
