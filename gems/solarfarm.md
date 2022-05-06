@@ -3,9 +3,9 @@
 
 ![Solar Farm](https://files.catbox.moe/ejx9z3.jpg)
 
-Growing steadily since the April 25th launch, team are always active marketing and pushing developments. They've now started opening up more frequent VCs.
+Growing swiftly since the April 25th launch, team are always active marketing and pushing developments. They've now started opening up more frequent VCs.
 
-- 440+ BNB in TVL
+- Rocketing towards 1000 BNB in TVL
 - Moonarch listed 
 - DappRadar listed 
 - Multiple YouTube Video Reviews 
