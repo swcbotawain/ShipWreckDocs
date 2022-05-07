@@ -3,31 +3,29 @@
 
 ![ShipWreck Cove](https://files.catbox.moe/24q2m5.jpg) 
 
-**For May 6th | Times are in GMT**
+**For May 7th | Times are in GMT**
 
 🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️
 
-TBA  | FL |  [GankPad](https://t.me/gankpad)
-00:01 | WL | [📲](https://www.pinksale.finance/#/launchpad/0x961E2F840DFb6184c59aa039A5FED4B0E4506deF?chain=BSC) [Artos](https://t.me/artos_official)
+TBA  | LA |  [ForceOfNature](https://t.me/forceofnature)
 
-12:00 | PP | [📲](https://www.pinksale.finance/#/launchpad/0xf15CdfAD17B14D98d810fDE33F6567FB1f4c93E7?chain=BSC) [MetaXgaming](https://t.me/MetaXgaming)
+08:00 | PP |  [ClashingBlades](https://t.me/clashingblades)
 
-15:00 | LA | [📲](https://titanx.org/dashboard/presale/0xc4f65fE1Fe00847B3ac0F5deE6165cb50b64329F?chain=bsc) [TitanX](https://t.me/TitanXProject)
+12:20 | WL |  [EagleNetwork](https://t.me/EagleNetWorkApp)
 
-15:00 | WL | [📲](https://www.pinksale.finance/#/launchpad/0x9A777700ceCfc04625E5fE26DAb598B569F09fA5?chain=BSC) [Sexn](https://t.me/SEXN_Official)
+14:00 | FL |  [BNBBurn](https://t.me/BNBurnOfficial)
 
-17:00 | WL |  [Sleep2Earn](https://t.me/sleep2earn)
+15:00 | LA | [📲](https://www.pinksale.finance/#/launchpad/0x9A777700ceCfc04625E5fE26DAb598B569F09fA5?chain=BSC) [Sexn](https://t.me/SEXN_Official)
 
-17:00 | WL |  [ForceOfNature](https://t.me/forceofnature)
+16:00 | PP |  [EverIncome](https://t.me/everincomecoin)
+
+16:00 | WL |  [StrikeCrypto](https://t.me/Strikecryptoen)
 
 17:00 | LA |  [AnimalFarm (Pigs)](https://t.me/The_Animal_Farm)
 
-18:00 | PP | [📲](https://www.pinksale.finance/#/launchpad/0xc527389832E5dD2FAC2311D71D849787a6573E4C?chain=BSC) [TucanaFinance](https://t.me/TucanaFinance)
+17:00 | WL | [📲](https://www.pinksale.finance/#/launchpad/0x0a855Bd7b615679B771DB5A844A8Fb1e83d93e15?chain=BSC) [MetaKingdom](https://t.me/metakingdomD)
 
-19:00 | FL |  [BNBeats](https://t.me/BNBeatsChannel)
-
-21:00 | LA |  [AVAYOFinance](https://t.me/AVAYOfinance) 
-
+19:00 | WL |  [StackdFinance](https://t.me/stackdfinance)
 
 
 **Data is provided by 3rd party**
