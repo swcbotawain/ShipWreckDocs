@@ -3,24 +3,32 @@
 
 ![Solar Farm](https://files.catbox.moe/ejx9z3.jpg)
 
-Growing swiftly since the April 25th launch, team are always active marketing and pushing developments. They've now started opening up more frequent VCs.
+$SOLAR token - Just Launched $250K MCAP 🔥 Experienced Team + KYC ✅ 
 
-- Rocketing towards 1000 BNB in TVL
-- Moonarch listed 
-- DappRadar listed 
-- Multiple YouTube Video Reviews 
-- Signed first ambassador,  CryptoKingdome78 for YouTube Videos, AMAs and Twitter posts
-- Held first AMA in Shipwreck Cove
-- Multiple external AMAs lined up
-- Active chat and team 
-- Frequent Marketing/Development 
-- Team Expansion
+$SOLAR is the Native Token to the ecosystem which will help support the miner project and give access to their exclusive launchpad and metaverse. You will be able to exchange Solar Token for chips and will be given as rewards in the Solar Casino. 
 
-Upcoming Developments : 
-Solar Farm Token (WL Presale)
-Solar Pad (Launchpad)
-Solar Verse (Games)
+Solar Farm Miner is the fastest growing, highest paying BNB Miner with 14.28% Daily APR & 12.5% Referral Bonus. Day 11 with over 1000+ BNB / $380K TVL!
 
+UPCOMING:
+🔷 Solar Pad
+🔷 Solar Verse 
+🔷 Solar Casino
+
+✅ LP Locked
+✅ Solid Plans
+✅ Multiple Daily AMAs
+✅ Marketing rolling out
+✅ Utility Building
+
+**Token:** 
+1B Total Supply
+1%  Max Tx
+8% Tax
+3% Marketing
+3% BuyBack Miner
+2% Treasury
+
+**Miner:** 
 14.28% Daily APR
 5214.28% Yearly APR
 6% Maintenance Fee
