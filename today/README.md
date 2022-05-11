@@ -3,30 +3,27 @@
 
 ![ShipWreck Cove](https://files.catbox.moe/24q2m5.jpg) 
 
-**For May 10th | Times are in GMT**
+**For May 11th | Times are in GMT**
 
 🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️
 
-05:00 | UN |  [AnyaInu](https://t.me/AnyaInu_Official)
+03:30 | PP |  [EverIncome](https://t.me/everincomecoin)
 
-13:00 | PP |  [Rumisles](https://t.me/rumisleschat)
+05:00 | UN | [📲](https://app.unicrypt.network/amm/pancake-v2/ilo/0x2C6b4cB9eDa8b563aa09C1f33fa5c483Ee67E475) [AnyaInu](https://t.me/AnyaInu_Official)
 
-14:00 | FL |  [Sleep2Earn](https://t.me/sleep2earn)
+09:00 | PP |  [MallLive](https://t.me/malllive)
 
-14:00 | FL |  [Retrobet](https://t.me/RetroBet_BSC)
+12:55 | PP |  [SpeedSter](https://t.me/TheSpeedSterToken_Official)
 
-15:00 | WL |  [Rebelution](https://t.me/RebelutionBSC)
+14:00 | LA | [📲](https://www.pinksale.finance/#/launchpad/0x3bc71bc181b3eb5cd1e02e40fcf363e90eef0a34?chain=BSC) [Sleep2Earn](https://t.me/sleep2earn)
 
-15:00 | WL |  [Bridgeswap](https://t.me/bridgeswap)
+14:00 | FL | [📲](https://www.pinksale.finance/#/launchpad/0x6E8eE576bf69EA02822E082ae6603f6004f37C99?chain=BSC) [Retrobet](https://t.me/RetroBet_BSC)
 
-15:30 | LA |  [CreedDAO](https://t.me/creeddaobsc)
+17:00 | LA |  [ForceOfNature](https://t.me/forceofnature)
 
-18:00 | WL |  [SatoshiGirl](https://t.me/satoshigirlportal)
+18:00 | WL |  [Label2Earn](https://t.me/L2EOfficial)
 
-19:00 | PV |  [SafeHaven](https://t.me/SafeHavendefi/)
-
-20:00 | WL |  [DefiMon](https://t.me/Defimon_Official_Group)
-
+20:00 | WL |  [KongCity](https://t.me/KongChannel)
 
 **Data is provided by 3rd party**
 
