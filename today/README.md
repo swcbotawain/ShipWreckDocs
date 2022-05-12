@@ -3,27 +3,38 @@
 
 ![ShipWreck Cove](https://files.catbox.moe/24q2m5.jpg) 
 
-**For May 11th | Times are in GMT**
+**For May 12th | Times are in GMT**
 
 🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️
 
-03:30 | PP |  [EverIncome](https://t.me/everincomecoin)
+TBA  | LA | [📲](https://www.pinksale.finance/#/launchpad/0x6E8eE576bf69EA02822E082ae6603f6004f37C99?chain=BSC) [Retrobet](https://t.me/RetroBet_BSC) 
 
-05:00 | UN | [📲](https://app.unicrypt.network/amm/pancake-v2/ilo/0x2C6b4cB9eDa8b563aa09C1f33fa5c483Ee67E475) [AnyaInu](https://t.me/AnyaInu_Official)
+ TBA  | WL |  [Vegasino](https://t.me/VegasinoBSC)
 
-09:00 | PP |  [MallLive](https://t.me/malllive)
+03:30 | LA |  [EverIncome](https://t.me/everincomecoin)
 
-12:55 | PP |  [SpeedSter](https://t.me/TheSpeedSterToken_Official)
+11:00 | FL |  [Mediate2Earn](https://t.me/meditate2earn)
 
-14:00 | LA | [📲](https://www.pinksale.finance/#/launchpad/0x3bc71bc181b3eb5cd1e02e40fcf363e90eef0a34?chain=BSC) [Sleep2Earn](https://t.me/sleep2earn)
+14:00 | FL |  [DinoStep](https://t.me/dinostepofficial)
 
-14:00 | FL | [📲](https://www.pinksale.finance/#/launchpad/0x6E8eE576bf69EA02822E082ae6603f6004f37C99?chain=BSC) [Retrobet](https://t.me/RetroBet_BSC)
+14:00 | PP |  [Bicymove](https://t.me/Bicycmove2)
 
-17:00 | LA |  [ForceOfNature](https://t.me/forceofnature)
+14:00 | PP | [📲](https://gempad.app/presale/0xD124F179BB984cd4d824594F3Fa262a78f122770?chainId=56) [MetaverseDao](https://t.me/metaverse_dao_community)
 
-18:00 | WL |  [Label2Earn](https://t.me/L2EOfficial)
+15:00 | WL |  [KatakuriInu](https://t.me/katakuriInuOfficial)
 
-20:00 | WL |  [KongCity](https://t.me/KongChannel)
+15:00 | WL |  [StepInu](https://t.me/StepInuCommunity)
+
+16:00 | WL |  [HunterXDAO](https://t.me/hunterxdao)
+
+16:00 | FL |  [AZWorld](https://t.me/azworld_global)
+
+17:00 | PP |  [TreeToken](https://t.me/TreeTokenOfficial)
+
+18:00 | LA |  [AnimalFarm (Pigs)](https://t.me/The_Animal_Farm)
+
+18:00 | WL |  [SwimN](https://t.me/SWIMNGroup)
+
 
 **Data is provided by 3rd party**
 
