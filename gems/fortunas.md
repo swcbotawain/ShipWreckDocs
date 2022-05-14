@@ -1,5 +1,5 @@
 
-# Fortunas Finance ($FRTNA) 🪙
+# Fortunas Finance 🪙
 
 [![](https://files.catbox.moe/jiudrz.jpg)](https://files.catbox.moe/wb60e0.mp4)
 
