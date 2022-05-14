@@ -24,7 +24,7 @@ Be rewarded as you grow your wealth through calculated risks 🎲 in our Sustain
 
 🟢 No swing trading 👎
 
-🟢 Reinvesting back into holders 📈
+🟢 Reinvest back into holders 📈
 
 🟢 Game hard, earn harder 🎮
 
