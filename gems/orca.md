@@ -1,7 +1,7 @@
 
 # 🌊🐳 Orca Protocol 🐳🌊
 
-![](https://files.catbox.moe/uqnjb7.jpg)
+![](https://files.catbox.moe/uqnjb7.jpg) 
 
 
 a 9x buffed Titano Fork
@@ -16,8 +16,8 @@ The Blackhole burns 3% out of all $OP Token market sales within the same individ
 Fees Hardcoded , No Disable trading 
 
 ## Links
-Website  - https://orcaprotocol.io/
-Telegram - https://t.me/orcaprotocol
-Discord - https://discord.gg/Pn8hPquVVD
-Gitbook - https://orcaprotocol.gitbook.io/orcaprotocolbsc/
-Chart - https://poocoin.app/tokens/0xd87fce0d8d6d8a38a2d808081fcfa79e78ba5a4a
+- [Website](https://orcaprotocol.io/)
+- [Telegram](https://t.me/orcaprotocol) 
+- [Discord](https://discord.gg/Pn8hPquVVD)
+- [Gitbook](https://orcaprotocol.gitbook.io/orcaprotocolbsc/)
+- [Chart](https://poocoin.app/tokens/0xd87fce0d8d6d8a38a2d808081fcfa79e78ba5a4a)
