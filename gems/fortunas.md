@@ -19,14 +19,23 @@ Pick & choose your own strategy to obtain the highest return on your capital
 Be rewarded as you grow your wealth through calculated risks 🎲 in our Sustainable and Scaleable ecosystem 
 
 🟢 Anti-dumping protocol 🚫 
+
 🟢 APY Insurance 🔰
+
 🟢 No swing trading 👎
+
 🟢 Reinvesting back into holders 📈
+
 🟢 Game hard, earn harder 🎮
+
 🟢 Pick your own APY 🎲
+
 🟢 Guaranteed backing price 💲
+
 🟢 No relying on external projects, our future lies solely on our own 💪
+
 🟢 Constant burning 🔥🔥🔥 
+
 🟢 & so much more!
 
 Team will be working 24/7 to introduce more revenue streams, where 100% of the revenue will be used to reward holders 🙌 
