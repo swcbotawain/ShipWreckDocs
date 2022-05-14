@@ -1,5 +1,5 @@
 
-# 🌊🐳 Orca Protocol 🐳🌊
+# Orca Protocol 🐳🌊
 
 ![](https://files.catbox.moe/uqnjb7.jpg) 
 
