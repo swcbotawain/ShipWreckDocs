@@ -7,27 +7,25 @@
 
 🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️
 
-09:00 | PP |  [GnomeMines](https://t.me/GnomeMines)
+`13:00 | FL |`  [1MillionDAO](https://t.me/one_mln_dao_chat)
 
-14:00 | PP |  [MoveCash](https://t.me/movecashofficial)
+`13:00 | LA |`  [Istep](https://t.me/iStepOfficialChannel)
 
-14:00 | FL |  [MetaMarketing](https://t.me/MetaMarketingDAO)
+`15:00 | WL |`  [Rebelution](https://t.me/RebelutionBSC)
 
-15:00 | LA |  [DreamN](https://t.me/DreamN_BSC)
+`15:00 | UN |`  [SasukeFinance](https://t.me/sasuke_finance)
 
-15:00 | WL |  [LostMetas](https://t.me/Lostmetascoin)
+`15:00 | FL |`  [Void](https://discord.gg/YKYyCpWj)
 
-15:00 | LA |  [StepInu](https://t.me/StepInuCommunity)
+`15:00 | FL |`  [RoyaltyFinance](http://t.me/RoyaltyFinanceOfficial)
 
-16:00 | LA |  [FusionFinance](https://t.me/fuusionfinance)
+`16:00 | PP |`  [Merit](https://t.me/MERITANN)
 
-16:06 | WL |  [EarnOnBike](https://t.me/earnonbike)
+`18:00 | LA |`  [ForeverRise](https://t.me/Foreverise_BSC)
 
-17:00 | PV |  [Listen2Earn](https://t.me/listen2earn)
+`19:00 | FL |`  [ShinobiVerse](https://t.me/shinobiversegame)
 
-19:00 | FL |  [FreeFinance](https://t.me/FreeFinancetoken)
-
-19:46 | UN |  [NekoGirl](https://t.me/NekoGirlOfficial)
+`19:00 | LA |`  [Decentraworld](https://t.me/decentraworldchat)
 
 **Data is provided by 3rd party**
 
