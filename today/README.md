@@ -3,29 +3,28 @@
 
 ![ShipWreck Cove](https://files.catbox.moe/24q2m5.jpg) 
 
-**For May 16th | Times are in GMT**
+**For May 17th | Times are in GMT**
 
 🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️
 
-`13:00 | FL |`  [1MillionDAO](https://t.me/one_mln_dao_chat)
+TBA  | PP |  [Listen2Earn](https://t.me/listen2earn)
 
-`13:00 | LA |`  [Istep](https://t.me/iStepOfficialChannel)
+12:00 | WL |  [X13Finance](https://t.me/X13Finance_Chat)
 
-`15:00 | WL |`  [Rebelution](https://t.me/RebelutionBSC)
+12:00 | FL |  [StakeProtocol](https://t.me/StakeProtocol)
 
-`15:00 | UN |`  [SasukeFinance](https://t.me/sasuke_finance)
+13:00 | UN |  [JinxInu](https://t.me/jinxinux1000)
 
-`15:00 | FL |`  [Void](https://discord.gg/YKYyCpWj)
+13:00 | PP |  [MetaFlokiRacers](https://t.me/metaflokiracers)
 
-`15:00 | FL |`  [RoyaltyFinance](http://t.me/RoyaltyFinanceOfficial)
+14:00 | WL |  [LetsRun2Fun](https://t.me/LetsRUN2FUN)
 
-`16:00 | PP |`  [Merit](https://t.me/MERITANN)
+15:00 | LA |  [Vegasino](https://t.me/VegasinoBSC)
 
-`18:00 | LA |`  [ForeverRise](https://t.me/Foreverise_BSC)
+16:00 | LA |  [Merit](https://t.me/MERITANN)
 
-`19:00 | FL |`  [ShinobiVerse](https://t.me/shinobiversegame)
+19:00 | WL |  [EverImpact](https://t.me/everimpact)
 
-`19:00 | LA |`  [Decentraworld](https://t.me/decentraworldchat)
 
 **Data is provided by 3rd party**
 
