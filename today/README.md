@@ -3,28 +3,25 @@
 
 ![ShipWreck Cove](https://files.catbox.moe/24q2m5.jpg) 
 
-**For May 17th | Times are in GMT**
+**For May 19th | Times are in GMT**
 
 🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️
 
-TBA  | PP |  [Listen2Earn](https://t.me/listen2earn)
+12:00 | FL |  [LamboFinance](https://t.me/lambofinancegroup)
 
-12:00 | WL |  [X13Finance](https://t.me/X13Finance_Chat)
+13:00 | FL | [📲](https://www.pinksale.finance/#/launchpad/0x189CBbd7b74Ed192532F7cAA4a3f255bB28aBd9D?chain=BSC) [1MillionDAO](https://t.me/one_mln_dao_chat)
 
-12:00 | FL |  [StakeProtocol](https://t.me/StakeProtocol)
+13:00 | PP | [📲](https://www.pinksale.finance/launchpad/0x331325CD024A3588f27556C23A1E7D4155075e22?chain=BSC) [GoSnooze](https://t.me/GoRideOfficialBSC)
 
-13:00 | UN |  [JinxInu](https://t.me/jinxinux1000)
+14:00 | LA |  [LetsRun2Fun](https://t.me/LetsRUN2FUN)
 
-13:00 | PP |  [MetaFlokiRacers](https://t.me/metaflokiracers)
+14:00 | WL |  [DinoStep](https://t.me/dinostepofficial)
 
-14:00 | WL |  [LetsRun2Fun](https://t.me/LetsRUN2FUN)
+14:00 | FL |  [MetaMarketing](https://t.me/MetaMarketingDAO)
 
-15:00 | LA |  [Vegasino](https://t.me/VegasinoBSC)
+14:00 | WL |  [ShiroGo](https://t.me/ShiroGoDiscussion)
 
-16:00 | LA |  [Merit](https://t.me/MERITANN)
-
-19:00 | WL |  [EverImpact](https://t.me/everimpact)
-
+20:00 | WL |  [Vivius](https://t.me/vivustoken)
 
 **Data is provided by 3rd party**
 
