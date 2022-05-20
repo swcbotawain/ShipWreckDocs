@@ -3,25 +3,24 @@
 
 ![ShipWreck Cove](https://files.catbox.moe/24q2m5.jpg) 
 
-**For May 19th | Times are in GMT**
+**For May 20th | Times are in GMT**
 
 🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️
 
-12:00 | FL |  [LamboFinance](https://t.me/lambofinancegroup)
+05:00 | UN | [📲](https://app.unicrypt.network/amm/pancake-v2/ilo/0x89B300b693fed798B4B60F454285134F168813CD) [SasukeFinance](https://t.me/sasuke_finance)
 
-13:00 | FL | [📲](https://www.pinksale.finance/#/launchpad/0x189CBbd7b74Ed192532F7cAA4a3f255bB28aBd9D?chain=BSC) [1MillionDAO](https://t.me/one_mln_dao_chat)
+12:00 | FL |  [StakeProtocol](https://t.me/StakeProtocol)
 
-13:00 | PP | [📲](https://www.pinksale.finance/launchpad/0x331325CD024A3588f27556C23A1E7D4155075e22?chain=BSC) [GoSnooze](https://t.me/GoRideOfficialBSC)
+13:00 | LA | [📲](https://www.pinksale.finance/launchpad/0x331325CD024A3588f27556C23A1E7D4155075e22?chain=BSC) [GoSnooze](https://t.me/GoRideOfficialBSC)
 
-14:00 | LA |  [LetsRun2Fun](https://t.me/LetsRUN2FUN)
+13:00 | WL |  [MetaSleep](https://t.me/MetaSleepOfficial)
 
-14:00 | WL |  [DinoStep](https://t.me/dinostepofficial)
+13:00 | WL |  [StepM](https://t.me/STEPM_community)
 
-14:00 | FL |  [MetaMarketing](https://t.me/MetaMarketingDAO)
+18:00 | FL | [📲](https://gempad.app/presale/0x728eD77c5390213b6BA16eb98D26b2c24296300b) [RoyaltyFinance](http://t.me/RoyaltyFinanceOfficial)
 
-14:00 | WL |  [ShiroGo](https://t.me/ShiroGoDiscussion)
+19:00 | LA |  [SpaceXInu](https://t.me/SpaceXInuPortal)
 
-20:00 | WL |  [Vivius](https://t.me/vivustoken)
 
 **Data is provided by 3rd party**
 
