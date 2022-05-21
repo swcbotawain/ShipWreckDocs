@@ -3,23 +3,22 @@
 
 ![ShipWreck Cove](https://files.catbox.moe/24q2m5.jpg) 
 
-**For May 20th | Times are in GMT**
+**For May 21st | Times are in GMT**
 
 🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️
 
-05:00 | UN | [📲](https://app.unicrypt.network/amm/pancake-v2/ilo/0x89B300b693fed798B4B60F454285134F168813CD) [SasukeFinance](https://t.me/sasuke_finance)
+TBA  | FL |  [KillKount](http://t.me/KillKountToken)
 
-12:00 | FL |  [StakeProtocol](https://t.me/StakeProtocol)
+12:00 | WL |  [CloudChat](https://t.me/cctoken_english)
 
-13:00 | LA | [📲](https://www.pinksale.finance/launchpad/0x331325CD024A3588f27556C23A1E7D4155075e22?chain=BSC) [GoSnooze](https://t.me/GoRideOfficialBSC)
+14:00 | UN |  [Luna 2.0](https://t.me/Lunax1000)
 
-13:00 | WL |  [MetaSleep](https://t.me/MetaSleepOfficial)
+16:00 | FL |  [UFO](https://t.me/ufo_0fficial)
 
-13:00 | WL |  [StepM](https://t.me/STEPM_community)
+19:00 | FL | [📲](https://www.pinksale.finance/#/launchpad/0x189CBbd7b74Ed192532F7cAA4a3f255bB28aBd9D?chain=BSC) [1MillionDAO](https://t.me/one_mln_dao_chat)
 
-18:00 | FL | [📲](https://gempad.app/presale/0x728eD77c5390213b6BA16eb98D26b2c24296300b) [RoyaltyFinance](http://t.me/RoyaltyFinanceOfficial)
+20:00 | LA |  [Vivius](https://t.me/vivustoken)
 
-19:00 | LA |  [SpaceXInu](https://t.me/SpaceXInuPortal)
 
 
 **Data is provided by 3rd party**
