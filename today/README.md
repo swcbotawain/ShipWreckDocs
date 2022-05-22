@@ -3,21 +3,21 @@
 
 ![ShipWreck Cove](https://files.catbox.moe/24q2m5.jpg) 
 
-**For May 21st | Times are in GMT**
+**For May 22nd | Times are in GMT**
 
 🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️
 
-TBA  | FL |  [KillKount](http://t.me/KillKountToken)
+`00:01 | LA |`  [StealthLuna](https://t.me/stealthlunalaunch)
 
-12:00 | WL |  [CloudChat](https://t.me/cctoken_english)
+`14:00 | WL |`  [StepC](https://t.me/stepCmove)
 
-14:00 | UN |  [Luna 2.0](https://t.me/Lunax1000)
+`14:00 | PP |`  [Ride2Earn](https://t.me/ride2earn)
 
-16:00 | FL |  [UFO](https://t.me/ufo_0fficial)
+`16:00 | WL |`  [OceansMiner](https://t.me/finance_oceans)
 
-19:00 | FL | [📲](https://www.pinksale.finance/#/launchpad/0x189CBbd7b74Ed192532F7cAA4a3f255bB28aBd9D?chain=BSC) [1MillionDAO](https://t.me/one_mln_dao_chat)
+`17:00 | LA |`  [TerraBull](https://t.me/TerraBullPortal)
 
-20:00 | LA |  [Vivius](https://t.me/vivustoken)
+`17:00 | UN |`  [Elonpets](https://t.me/elonpetsofficial)
 
 
 
