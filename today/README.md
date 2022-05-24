@@ -3,29 +3,26 @@
 
 ![ShipWreck Cove](https://files.catbox.moe/24q2m5.jpg) 
 
-**For May 23nd | Times are in GMT**
+**For May 24th | Times are in GMT**
 
 🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️
 
-12:00 | WL |  [CloudChat](https://t.me/cctoken_english)
+13:00 | WL |  [MoveZ](https://t.me/movez_app)
 
-14:00 | LA |  [StepC](https://t.me/stepCmove)
+17:00 | LA |  [ForceOfNature](https://t.me/forceofnature)
 
-15:00 | WL |  [DokWon](https://t.me/Dokwon_BSC)
+17:00 | WL |  [AZWorld](https://t.me/azworld_global)
 
-16:00 | UN |  [StepCat](https://t.me/stepcat100x)
+19:00 | LA |  [Atem](https://t.me/ATEMTOKEN)
 
-16:00 | LA |  [Vegasino](https://t.me/VegasinoBSC)
+19:00 | FL | [📲](https://www.pinksale.finance/#/launchpad/0xc5175b363763047D456ABCFEfD06198D6E32fEe0?chain=BSC) [ShinobiVerse](https://t.me/shinobiversegame)
 
-17:00 | UN |  [Luna 2.0](https://t.me/Lunax1000)
+20:00 | WL |  [FreeFinance](https://t.me/FreeFinancetoken)
 
-17:00 | FL |  [TreeToken](https://t.me/TreeTokenOfficial)
+20:00 | LA |  [StepCat](https://t.me/stepcat100x)
 
-17:45 | UN |  [Elonpets](https://t.me/elonpetsofficial)
+21:00 | FL |  [KillKount](http://t.me/KillKountToken)
 
-19:00 | LA |  [Tokenarium](https://t.me/tokenarium)
-
-19:00 | WL |  [Atem](https://t.me/ATEMTOKEN)
 
 
 
