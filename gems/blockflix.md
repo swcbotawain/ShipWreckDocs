@@ -1,6 +1,6 @@
 
 # Blockflix Token
-
+![](https://files.catbox.moe/n8y2sw.jpg)
 BlockFlix is a movie platform like Netflix. It has a lot of premium content which can be paid for with $BlockFlixTokens. 50% tokens received from premium activations are burned and 50% will be shared to community via lottery! If credit card or paypal is used for purchase Premium account, then 50% from payment will be used for buyback and of course those tokens will be burned!
 
 ✅ Private Sale is Live
