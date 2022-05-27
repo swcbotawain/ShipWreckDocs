@@ -3,26 +3,17 @@
 
 ![ShipWreck Cove](https://files.catbox.moe/24q2m5.jpg) 
 
-**For May 26th | Times are in GMT**
+**For May 27th | Times are in GMT**
 
 🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️
 
-12:00 | PP |  [DragonP2E](https://t.me/dragonp2eofficial)
+`14:00 | WL |`  [StepUp](https://t.me/StepUp_M2E)
 
-16:00 | LA |  [SportMove](https://t.me/sport_move)
+`16:00 | FL |`  [SmartMusic](https://t.me/SmartMusicListen2Earn)
 
-17:00 | PP |  [BabyStepN](https://t.me/babystepntoken)
+`18:00 | FL |`  [RoyalPay](https://t.me/RoyaltyFinanceOfficial)
 
-18:00 | LA |  [Warmiz](https://t.me/WARMIZOFFICIAL)
-
-18:00 | LA |  [AndroMeta](https://t.me/andrometatoken)
-
-19:00 | LA | [📲](https://www.pinksale.finance/#/launchpad/0xc5175b363763047D456ABCFEfD06198D6E32fEe0?chain=BSC) [ShinobiVerse](https://t.me/shinobiversegame)
-
-20:00 | WL |  [Walk2Earn](https://t.me/Walk2Earn_app)
-
-21:00 | FL |  [KillKount](http://t.me/KillKountToken)
-
+`20:00 | PP |`  [Walk2Earn](https://t.me/Walk2Earn_app)
 
 **Data is provided by 3rd party**
 
