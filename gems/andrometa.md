@@ -6,14 +6,14 @@ Safe, passive income. Now in a galaxy near you...
 
 Cross-chain ecosystem with four expertly handcrafted contracts. Featuring multiple ways for holders to earn, via BSC token staking and ETH NFT staking. 
 
-🔹Contracts written from scratch
-🔹Holders can earn passive, sustainable income 
-🔹Devs & marketers previous projects reached over 1.7 Billion MC
-🔹Team of specialists with years of experience 
-🔹KYC done & audit(s) done before launch 
-🔹Multiple marketers on the team and prof. crypto agency hired
-🔹Sexy ETH NFTs tradable on Opensea
-🔹Fairlaunch no presale
+- Contracts written from scratch
+- Holders can earn passive, sustainable income 
+- Devs & marketers previous projects reached over 1.7 Billion MC
+- Team of specialists with years of experience 
+- KYC done & audit(s) done before launch 
+- Multiple marketers on the team and prof. crypto agency hired
+- Sexy ETH NFTs tradable on Opensea
+- Fairlaunch no presale
 
 Knowledgeable and well known team with expertise covering every facet of the project
 
