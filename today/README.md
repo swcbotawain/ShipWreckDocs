@@ -3,19 +3,29 @@
 
 ![ShipWreck Cove](https://files.catbox.moe/24q2m5.jpg) 
 
-**For May 28th | Times are in GMT**
+**For May 30th | Times are in GMT**
 
 🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️
 
-12:00 | WL |  [RunterIo](https://t.me/RunterIO)
+ TBA  | LA | [📈](https://poocoin.app/tokens/0xc41ab777c7d1d5e04414a14fc6fa4c93766fb1eb)[📲](https://www.pinksale.finance/launchpad/0xF622bAc7F04B4F1f7386f94A1Ff89645b9C68922?chain=BSC) [Y5](https://t.me/Y5TOKENOFFICIAL1)
 
-13:00 | FL |  [MetaMarketing](https://t.me/MetaMarketingDAO)
+11:00 | PP |  [TribalPunk](https://t.me/tribalpunkglobal)
 
-14:00 | WL |  [Sport2K75](https://t.me/sports2k75)
+13:00 | WL |  [FrogInu](https://t.me/FrogInuOfficial)
 
-14:00 | PP |  [SafeJet](https://t.me/safejetofficial)
+14:00 | WL |  [WorldStep](https://t.me/WorldStepOfficial)
 
-18:30 | WL |  [Hulk](https://t.me/HULK_TOKEN)
+15:00 | WL |  [SexN](https://t.me/SEXN_Official)
+
+17:00 | LA |  [TreeToken](https://t.me/TreeTokenOfficial)
+
+17:00 | FL |  [DualMiner](https://t.me/dualminermoney)
+
+17:00 | FL |  [WittyCat](https://t.me/wittycatofficial)
+
+18:00 | WL |  [ElonsQuiz](https://t.me/elonsquiz)
+
+21:00 | WL | [📲](https://app.a11.finance/projects-details/crootball-crol-2022-05-30) [CrootBall](https://t.me/crootball)
 
 
 **Data is provided by 3rd party**
