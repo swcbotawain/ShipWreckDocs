@@ -3,30 +3,23 @@
 
 ![ShipWreck Cove](https://files.catbox.moe/24q2m5.jpg) 
 
-**For May 30th | Times are in GMT**
+**For May 31st | Times are in GMT**
 
 🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️
 
- TBA  | LA | [📈](https://poocoin.app/tokens/0xc41ab777c7d1d5e04414a14fc6fa4c93766fb1eb)[📲](https://www.pinksale.finance/launchpad/0xF622bAc7F04B4F1f7386f94A1Ff89645b9C68922?chain=BSC) [Y5](https://t.me/Y5TOKENOFFICIAL1)
+ `12:00 | WL |`  [JoJo](https://t.me/jojobnb_cn)
 
-11:00 | PP |  [TribalPunk](https://t.me/tribalpunkglobal)
+`13:00 | WL |`  [SonicInu](https://t.me/SonicInu_bsc)
 
-13:00 | WL |  [FrogInu](https://t.me/FrogInuOfficial)
+`14:00 | WL |` [📲](https://www.pinksale.finance/#/launchpad/0xc5175b363763047D456ABCFEfD06198D6E32fEe0?chain=BSC) [Run4Life](https://t.me/run4lifeglobal)
 
-14:00 | WL |  [WorldStep](https://t.me/WorldStepOfficial)
+`15:00 | LA |`  [SexN](https://t.me/SEXN_Official)
 
-15:00 | WL |  [SexN](https://t.me/SEXN_Official)
+`16:00 | FL |`  [SmartMusic](https://t.me/SmartMusicListen2Earn)
 
-17:00 | LA |  [TreeToken](https://t.me/TreeTokenOfficial)
+`18:00 | FL |`  [RoyalPay](https://t.me/RoyaltyFinanceOfficial)
 
-17:00 | FL |  [DualMiner](https://t.me/dualminermoney)
-
-17:00 | FL |  [WittyCat](https://t.me/wittycatofficial)
-
-18:00 | WL |  [ElonsQuiz](https://t.me/elonsquiz)
-
-21:00 | WL | [📲](https://app.a11.finance/projects-details/crootball-crol-2022-05-30) [CrootBall](https://t.me/crootball)
-
+`18:00 | WL |`  [Elevation](https://t.me/ElevationToken)
 
 **Data is provided by 3rd party**
 
