@@ -3,21 +3,20 @@
 
 ![ShipWreck Cove](https://files.catbox.moe/24q2m5.jpg) 
 
-**For June 2nd | Times are in GMT**
+**For June 3rd | Times are in GMT**
 
 🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️
 
- 16:00 | WL |  [LuckyMetaverse](https://t.me/Luckymetaverse_official)
+15:00 | WL |  [HyperWalk](https://t.me/hyperwalk_global)
 
-17:00 | PP |  [BabyStepN](https://t.me/babystepntoken)
+16:00 | PP |  [Explr](https://t.me/explr_official)
 
-17:00 | WL |  [MetalShibaInu](https://t.me/metalshibainu)
+16:00 | PP |  [RetroArena](https://t.me/RetroArenaOfficial)
 
-18:00 | LA |  [MoneyPrinter](https://t.me/MoneyPrinterPortal)
+17:00 | LA |  [BabyStepN](https://t.me/babystepntoken)
 
 18:00 | WL |  [MoonRaiders](https://t.me/moonraiders)
 
-20:00 | WL |  [KillKount](https://t.me/killkounttoken)
 
 
 **Data is provided by 3rd party**
