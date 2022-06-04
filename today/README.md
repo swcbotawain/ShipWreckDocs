@@ -3,20 +3,13 @@
 
 ![ShipWreck Cove](https://files.catbox.moe/24q2m5.jpg) 
 
-**For June 3rd | Times are in GMT**
+**For June 4th | Times are in GMT**
 
 🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️🏴‍☠️
 
-15:00 | WL |  [HyperWalk](https://t.me/hyperwalk_global)
+12:00 | FL |  [ApexFinance](https://t.me/apexfinance1)
 
-16:00 | PP |  [Explr](https://t.me/explr_official)
-
-16:00 | PP |  [RetroArena](https://t.me/RetroArenaOfficial)
-
-17:00 | LA |  [BabyStepN](https://t.me/babystepntoken)
-
-18:00 | WL |  [MoonRaiders](https://t.me/moonraiders)
-
+14:00 | FL |  [MultiFinance](https://t.me/MultiFinance_chat)
 
 
 **Data is provided by 3rd party**
