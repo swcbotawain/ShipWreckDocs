@@ -9,8 +9,10 @@ Looking to find and share legit projects | Catch up on crypto news | Hang out wi
 Then you're in the right place
 
 - [Gems](gems/) 
+- [All Time Greats](atg/)
+- [Partners](partners/)
+- [Plays](plays/)
 - [Marketing](marketing/)
-- [Today's Tracked Launches](today/)
 
 ## Our Links
 - [Telegram](https://t.me/Shipwreckc0ve)
