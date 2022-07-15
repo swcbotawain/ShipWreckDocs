@@ -1,5 +1,6 @@
-# MiNDTOKEN
+# MiNDTOKEN🌷
 ![](https://files.catbox.moe/24d541.jpg)
+
 Bringing wellness to crypto through mental health and tele-health services.
 
 Their innovative platform grants access to doctors, counselors, lawyers and other professionals by simply staking $50/month!
