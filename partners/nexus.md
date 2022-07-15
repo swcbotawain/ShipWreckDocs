@@ -6,14 +6,19 @@
 Nexus provides new and experienced crypto users with an all-in-one platform for their entire crypto journey. From learning how to get set up in the world of crypto & making your first trade to facilitating cross-chain bridging of funds & NFT tracking.
 
 ✅dApp LIVE
+
 ✅Doxxed Team & LLC in Wyoming
+
 ✅Established project Launched Okt. '21
 
 The $NEXUS token is the financial backbone of the ecosystem and will be used to facilitate a variety of actions within the platform.
 
 🚀10M Supply
+
 🚀Staking LIVE
+
 🚀5% Tax
+
 🚀Cross-Chain Launch Imminent
 
 Nexus Folio is the market entry product and enjoys continuous updates based on community feedback.
