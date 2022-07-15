@@ -1,6 +1,5 @@
-# MiNDTOKEN🌷
+# MiNDTOKEN
 ![](https://files.catbox.moe/24d541.jpg)
-
 Bringing wellness to crypto through mental health and tele-health services.
 
 Their innovative platform grants access to doctors, counselors, lawyers and other professionals by simply staking $50/month!
@@ -20,7 +19,7 @@ Whitelists are exclusively available through The Candle Factory partners.
 
 *To receive a whitelist spot, do the following 2 tasks: 
 
-1.  ** Fill this form-** [https://forms.gle/dM3K7j3FupeTkRxFA](https://forms.gle/dM3K7j3FupeTkRxFA)
+1.  **Fill this form** - [https://forms.gle/dM3K7j3FupeTkRxFA](https://forms.gle/dM3K7j3FupeTkRxFA)
 2. **Join the Mind Token Community** (Mandatory). [https://t.me/MiNDOfficialbsc](https://t.me/MiNDOfficialbsc)
 
 Check out the Candle Factory Partners - [https://linktr.ee/thecandlefactory](https://linktr.ee/thecandlefactory)
