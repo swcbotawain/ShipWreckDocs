@@ -1,9 +1,0 @@
-
-# All Time Greats
-
-We have a soft spot for these long time favourites and think they are ones to watch in the long term
-
-- 🔴[DOI](doi.md): help fix humanity's most challenging problems 
-- 🎮[ENCTR](enctr.md): A new standard for GameFi
-- 🔷[EXO](exo.md): the next generation of De-Fi
-
