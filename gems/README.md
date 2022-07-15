@@ -3,13 +3,12 @@
 
 ## Spotlight Gems
 
-- 🐳[Orca](orca.md): a 9x buffed Titano fork with high APY
-- 🍺[Landlord](landlord.md): Pay for drinks via the worlds first pub token
-- 🐺 [Balto Token](balto.md): BSC charity token with NFTs
-- 🎈 [Pump Token](pump.md) : innovative token with xUSD rewards
-- 🎬 [BlockFlix](blockflix.md): stream hiqh quality content paid for with crypto 
+- 🌷[Mind](mind.md): bringing mental health wellness to crypto
+- 🌊[Wave](wave.md): Sphere Finance-inspired protocol on BSC
+- 🌍[Kyoto](kyoto.md): High APY token, evolving into a L1 Carbon credit blockchain
+- 🦅[DUT](dut.md): 2% BUSD Rewards and DEX profit sharing
+- 🔳[Cronex](cronex.md): offering fee sharing from multiple utilities
 - 🪙[Fortunas](fortunas.md): choose your APY rebase strategy
-
 
 ## All Time Great Gems
 
