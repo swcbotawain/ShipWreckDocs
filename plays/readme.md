@@ -5,35 +5,32 @@ Looking for a quick flip? Want to get that inner degen out? Here are some additi
 
 ## Featured Play
 
-🐥Da Wae: Project by Shrek From Shrek calls and Jacob. Supported by really big names. Many callers are going to call this as Shrek got a good name out there.
-[Telegram](https://t.me/DaWaeBSC) |  [Chart](https://app.nexuscrypto.com/token/bsc/0x96cc92de27cdcb873086c03d362f70160eaddfc2)
+🐶*DogeInversed (egoD)* is an hyper deflationary token made for the community which guarantees rewards to its holders while decreasing the supply through an autoburn function
+[Telegram](https://t.me/egoDInversed) | [Chart](https://app.nexuscrypto.com/token/bsc/0xc852A20db80B7a225E6C78207E61dD4C13Fae435)
 
-## Today's Tracked Projects for July 15th
+## Today's Tracked Projects for July 17th
 _Times are GMT_
 
- `TBA  | WL |`  [DegenSurvivors](https://t.me/degensurvivors)
+ TBA  | WL |  [AntCoin](https://t.me/Antcoin_official)
 
-`12:00 | WL |`  [GreatestWorkOfArt](https://t.me/GWOAEN)
+ TBA  | WL |  [DriveCrypto](https://t.me/drivecrypto_official)
+ 
+TBA  | WL | [📈](https://app.nexuscrypto.com/token/bsc/0xb3e3a1ad0129b486a758f2317a384de7940cc135)[📲](https://www.pinksale.finance/launchpad/0xd09d55C66499E13FfcC54B214d5f15Df89d15443?chain=BSC) [Lusail](https://t.me/Lusail_Global)
 
-`12:30 | WL |` [📲](https://www.pinksale.finance/launchpad/0x636df130eEF84549C0eCe55DD60360A01AC3D6c1?chain=BSC) [BirdmanFashion](http://t.me/BirdmanFashion)
+13:00 | LA | [📲](https://www.pinksale.finance/launchpad/0x5ea7ad460b942425c4fd07e9b91331dcdbf79b02?chain=BSC) [CryptosTribe](https://t.me/CryptosTribeio)
 
-`14:00 | WL |` [📲](https://www.pinksale.finance/launchpad/0xa8f6E9bFb458EEa399878a0700227C524746b944?chain=BSC) [MoonBox](https://t.me/MoonBoxPortal)
+13:00 | WL |  [SingInu](https://t.me/singinu)
 
-`14:00 | WL |` [📲](https://www.pinksale.finance/launchpad/0x840477b3139fDA1df7C36394E8f67Efc83730540?chain=BSC) [WorldCupChampion](https://t.me/World_Cup_Champion_Global)
+14:00 | LA | [📲](https://www.pinksale.finance/launchpad/0xc7F101d3d56FAB543D0A19cb6D6BCf09CD492240?chain=BSC) [PearToken](https://t.me/PearToken_EN)
 
-`15:00 | LA |` [📲](https://www.pinksale.finance/launchpad/0xd175b39Ecbe53C72c2EC16805052481150A70B7E?chain=BSC) [Futbolista](https://t.me/FutbolistaNFT)
+14:00 | PP |  [Monverse](https://t.me/monversegame)
 
-`15:00 | FL |` [📈](https://app.nexuscrypto.com/token/bsc/0x1aeb3f66d96bfaf74fcbd15dc21798de36f6f933)[📲](https://www.pinksale.finance/launchpad/0x46Ad383e5D5D4E275d4af1a6E55C14b552CC69fE?chain=BSC) [Web3Project](https://t.me/TheWeb3Project)
+16:00 | LA | [📈](https://app.nexuscrypto.com/token/bsc/0x2cd6f07bf8a32b43fc1d8c06fd910fd59ec7b9b7)[📲](https://www.pinksale.finance/launchpad/0x671542cC8a38082b974C8AD6C4CCBb3f49fa1797?chain=BSC) [GoldRush](https://t.me/grushfinance)
 
-`15:00 | PP |`  [Slyderin](https://t.me/SlyderinTale)
+17:00 | WL |  [MorkieInu](https://t.me/morkieinu)
 
-`16:00 | WL |`  [UFD](https://t.me/ufdtoken)
+20:00 | LA | [📈](https://app.nexuscrypto.com/token/bsc/0x8ea346816accdf6f3658eb2b8f31b59992a9b6cc)[📲](https://www.pinksale.finance/launchpad/0xA5998658487F8249403cEe317d11f5e9Eb272d5c?chain=BSC) [Passifi](https://t.me/Passifi_Official)
 
-`17:00 | FL |` [📲](https://www.pinksale.finance/launchpad/0xF74B8F139fd76E92030b5Ca785782C68D4db8694?chain=BSC) [MetFXWorld](http://t.me/METFXWORLD)
-
-`18:00 | FL |` [📈](https://app.nexuscrypto.com/token/bsc/0x5d7f9c9f3f901f2c1b576b8d81bd4165647855a4)[📲](https://www.pinksale.finance/launchpad/0x346e9f2e9e9b4324bfd28a538a12a2366dcbee9c?chain=BSC) [BetToEarn](https://t.me/bteBSC)
-
-`20:00 | FL |` [📲](https://www.pinksale.finance/launchpad/0x1a658F60B583600dC5dd5fb75b4D38729102dd19?chain=BSC) [Passifi](https://t.me/Passifi_Official)
 
 **Today Launch List is provided by 3rd party**
 
