@@ -5,31 +5,46 @@ Looking for a quick flip? Want to get that inner degen out? Here are some additi
 
 ## Featured Play
 
-🐶*DogeInversed (egoD)* is an hyper deflationary token made for the community which guarantees rewards to its holders while decreasing the supply through an autoburn function
-[Telegram](https://t.me/egoDInversed) | [Chart](https://app.nexuscrypto.com/token/bsc/0xc852A20db80B7a225E6C78207E61dD4C13Fae435)
+🦍 *Shibape* has ventured onto the Ethereum Network with a single goal in mind: to cultivate an unrivalled meme community & conquer the blockchain while becoming the strongest ERC20 token to grace the earth!
+[Telegram](https://t.me/shibapeeth) | [Chart](https://www.dextools.io/app/ether/pair-explorer/0x2d7cf817b44bfeb8ec5167241e1c62be1f9b8444)
 
-## Today's Tracked Projects for July 17th
+## Today's Tracked Projects for July 18th
 _Times are GMT_
 
- TBA  | WL |  [AntCoin](https://t.me/Antcoin_official)
+ TBA  | WL |  [MilkyFinance](https://t.me/MilkyFinance)
 
- TBA  | WL |  [DriveCrypto](https://t.me/drivecrypto_official)
- 
-TBA  | WL | [📈](https://app.nexuscrypto.com/token/bsc/0xb3e3a1ad0129b486a758f2317a384de7940cc135)[📲](https://www.pinksale.finance/launchpad/0xd09d55C66499E13FfcC54B214d5f15Df89d15443?chain=BSC) [Lusail](https://t.me/Lusail_Global)
+12:00 | FL |  [Critique](https://t.me/CritiquePlatformOfficial)
 
-13:00 | LA | [📲](https://www.pinksale.finance/launchpad/0x5ea7ad460b942425c4fd07e9b91331dcdbf79b02?chain=BSC) [CryptosTribe](https://t.me/CryptosTribeio)
+14:00 | LA | [📈](https://app.nexuscrypto.com/token/bsc/0x3933e1cdd51de9b0f7d062ac8549ccdf63c219a9)[📲](https://www.pinksale.finance/launchpad/0xc7aA0bDf5d8808b5BD3a1575Ca932f8DF4b77645?chain=BSC) [Monverse](https://t.me/monversegame)
 
-13:00 | WL |  [SingInu](https://t.me/singinu)
+15:00 | LA | [📈](https://app.nexuscrypto.com/token/bsc/0xa52f0c0a5d0217cee99fabae71dbae98ccfc106e)[📲](https://www.pinksale.finance/launchpad/0x9E1abeA46CF4ADAB42Ba8F50458db4D265140E55?chain=BSC) [AntCoin](https://t.me/Antcoin_official)
 
-14:00 | LA | [📲](https://www.pinksale.finance/launchpad/0xc7F101d3d56FAB543D0A19cb6D6BCf09CD492240?chain=BSC) [PearToken](https://t.me/PearToken_EN)
+15:00 | LA | [📈](https://app.nexuscrypto.com/token/bsc/0x1aeb3f66d96bfaf74fcbd15dc21798de36f6f933)[📲](https://www.pinksale.finance/launchpad/0x46Ad383e5D5D4E275d4af1a6E55C14b552CC69fE?chain=BSC) [Web3Project](https://t.me/TheWeb3Project)
 
-14:00 | PP |  [Monverse](https://t.me/monversegame)
+15:00 | FL |  [SoundTopia](https://t.me/Soundtopia_Official)
 
-16:00 | LA | [📈](https://app.nexuscrypto.com/token/bsc/0x2cd6f07bf8a32b43fc1d8c06fd910fd59ec7b9b7)[📲](https://www.pinksale.finance/launchpad/0x671542cC8a38082b974C8AD6C4CCBb3f49fa1797?chain=BSC) [GoldRush](https://t.me/grushfinance)
+16:00 | LA | [📲](https://www.pinksale.finance/launchpad/0x7141544FFAD41f32E639de323F7Cc1abf23B615B?chain=BSC) [UFD](https://t.me/ufdtoken)
 
-17:00 | WL |  [MorkieInu](https://t.me/morkieinu)
+16:00 | WL |  [SamuraiKing](https://t.me/SamuraiKingBSC)
 
-20:00 | LA | [📈](https://app.nexuscrypto.com/token/bsc/0x8ea346816accdf6f3658eb2b8f31b59992a9b6cc)[📲](https://www.pinksale.finance/launchpad/0xA5998658487F8249403cEe317d11f5e9Eb272d5c?chain=BSC) [Passifi](https://t.me/Passifi_Official)
+16:00 | WL |  [PecoraNetwork](https://t.me/PecoraNetwork)
+
+16:00 | WL |  [SuperrDoge](https://t.me/SuperrDogeBSC)
+
+17:00 | LA | [📈](https://app.nexuscrypto.com/token/bsc/0xa477b60ed0687a0639471d28d630df6d0f83d26e)[📲](https://gempad.app/presale/0x2fCF906C6e4CB6701718b36b2Ba4CE5c79D5d38C) [MorkieInu](https://t.me/morkieinu)
+
+18:14 | WL |  [RatsCoin](https://t.me/ratscoinchina1)
+
+19:00 | LA |  [YieldTopia](https://t.me/yieldtopiachat)
+
+19:00 | WL | [📲](https://gempad.app/presale/0xa56FB1834f770b3C5814F4f4E566eADee8FF8d06?chainId=56) [ElmoInu](https://t.me/ElmoInuBSC)
+
+20:00 | LA | [📲](https://www.pinksale.finance/launchpad/0xeeEE8a091E63cE6De37Fe1eBC101170E84811449?chain=BSC) [LooBr](https://t.me/loobr_com)
+
+20:00 | FL |  [MilkyFinance](https://t.me/MilkyFinance)
+
+22:00 | PP |  [SatoshiGirl](https://t.me/satoshigirlportal)
+
 
 
 **Today Launch List is provided by 3rd party**
