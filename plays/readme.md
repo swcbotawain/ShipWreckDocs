@@ -5,37 +5,34 @@ Looking for a quick flip? Want to get that inner degen out? Here are some additi
 
 ## Featured Play
 
-🐜 *Antcoin* is not just another token on Binance Smart Chain, Antcoin will bring immediate utility for it's community with features rarely seen on the Binance Smart Chain while building a strong, cooperative and selfless community working together as an army to make Antcoin achieve it's goals
-[Telegram](https://t.me/antcoin_official) | [Chart](https://app.nexuscrypto.com/token/bsc/0xa52f0c0A5D0217cEE99faBAE71DbaE98ccFc106E)
+🌀 *Spiral*: Launched on July 20th - this token appears to be linked to, or the same entity that deployed $Floki
+[Telegram](https://t.me/SpiralPortal) | [Chart](https://www.dextools.io/app/ether/pair-explorer/0x11a708ded0fe503bbbf43d2baf403120dc5e145c)
 
-## Today's Tracked Projects for July 20th
+## Today's Tracked Projects for July 21st
 _Times are GMT_
 
-`00:00 | PP |`  [Bitcupex](https://t.me/bitcupex)
+`12:00 | PP |`  [SmartVision](https://t.me/svc_coin)
 
-`09:00 | FL |`  [GaitProtocol](https://t.me/GaitProtocol)
+`12:00 | WL |`  [ShelbySwap](https://t.me/shelbyswapglobal)
 
-`12:00 | WL |`  [MegaLott](https://t.me/MegaLott_Global)
+`14:00 | WL |`  [MyMeow](https://t.me/mymeow_global)
 
-`13:00 | LA |`  [SpaceHayya](https://t.me/SpaceHayya)
+`15:00 | FL |` [📲](https://www.pinksale.finance/launchpad/0x9589E29af9a85329384bB91b81f3487ED1f835F3?chain=BSC) [Lunatics](https://t.me/LunaticsTokenOfficial)
 
-`14:00 | WL |`  [BobInu](https://t.me/BobInuOfficial)
+`15:00 | WL |` [📲](https://apesale.app/launchpad/pancake-v2/ilo/0xB02FdD3a50c9487B27e079bbB53b0a6019161D22) [ShibaAvengers](https://t.me/shibaavengerchat)
 
-`14:00 | PP |`  [StrikeCrypto](https://t.me/strikecryptobsc)
+`15:00 | FL |`  [SoundTopia](https://t.me/Soundtopia_Official)
 
-`15:00 | FL |`  [Lunatics](https://t.me/LunaticsTokenOfficial)
+`15:00 | WL |`  [MetaWorldV2](https://t.me/metaworldv2)
 
-`15:00 | UN |`  [ShibaAvengers](https://t.me/shibaavengerchat)
+`17:00 | WL |` [📲](https://gempad.app/presale/0xbB319E84a5ABAbd50cF45F80a56269e6168E8E94) [TowerOfGod](https://t.me/Towerofgodbsc)
 
-`17:00 | LA |` [📲](https://www.pinksale.finance/launchpad/0xF74B8F139fd76E92030b5Ca785782C68D4db8694?chain=BSC) [MetFXWorld](http://t.me/METFXWORLD)
+`19:00 | WL |`  [MetaEarn](https://t.me/metaearn_entry_portal)
 
-`17:00 | LA |`  [HelpingShiba](https://t.me/helpingshiba)
+`19:00 | LA |`  [Hopium (ETH)](https://t.me/Hopium_Portal)
 
-`19:00 | WL |`  [MIND](https://t.me/MiNDOfficialbsc)
+`21:00 | LA |`  [CorgleyInu](https://t.me/corglyinu)
 
-`21:00 | WL |`  [CorgleyInu](https://t.me/corglyinu)
-
-`21:00 | LA |`  [Cube (ETH)](https://t.me/cubexportal
 
 **Today Launch List is provided by 3rd party**
 
