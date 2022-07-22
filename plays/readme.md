@@ -8,31 +8,24 @@ Looking for a quick flip? Want to get that inner degen out? Here are some additi
 🌀 *Spiral*: Launched on July 20th - this token appears to be linked to, or the same entity that deployed $Floki
 [Telegram](https://t.me/SpiralPortal) | [Chart](https://www.dextools.io/app/ether/pair-explorer/0x11a708ded0fe503bbbf43d2baf403120dc5e145c)
 
-## Today's Tracked Projects for July 21st
+## Today's Tracked Projects for July 22nd
 _Times are GMT_
 
-`12:00 | PP |`  [SmartVision](https://t.me/svc_coin)
+ TBA  | LA | [📲](https://www.pinksale.finance/launchpad/0x9589E29af9a85329384bB91b81f3487ED1f835F3?chain=BSC) [Lunatics](https://t.me/LunaticsTokenOfficial)
 
-`12:00 | WL |`  [ShelbySwap](https://t.me/shelbyswapglobal)
+09:00 | FL | [📲](https://www.pinksale.finance/launchpad/0xeeEE8a091E63cE6De37Fe1eBC101170E84811449?chain=BSC) [Alkebuland](https://t.me/AlkebulandOfficial)
 
-`14:00 | WL |`  [MyMeow](https://t.me/mymeow_global)
+13:00 | WL |  [Siuuuu](https://t.me/siuuugroup)
 
-`15:00 | FL |` [📲](https://www.pinksale.finance/launchpad/0x9589E29af9a85329384bB91b81f3487ED1f835F3?chain=BSC) [Lunatics](https://t.me/LunaticsTokenOfficial)
+13:00 | LA | [📲](https://www.pinksale.finance/launchpad/0x3D7EACCAaD25E9D4568b9eaae585935DB00b4E10?chain=BSC) [PiDoge](https://t.me/Pidogeglobal)
 
-`15:00 | WL |` [📲](https://apesale.app/launchpad/pancake-v2/ilo/0xB02FdD3a50c9487B27e079bbB53b0a6019161D22) [ShibaAvengers](https://t.me/shibaavengerchat)
+13:00 | WL |  [WorldCupToken](https://t.me/WCTokenGlobal)
 
-`15:00 | FL |`  [SoundTopia](https://t.me/Soundtopia_Official)
+14:00 | UN |  [Drive2Earn](https://t.me/Drive2Earn_Global)
 
-`15:00 | WL |`  [MetaWorldV2](https://t.me/metaworldv2)
+14:00 | FL | [📲](https://www.pinksale.finance/launchpad/0x0698AC37537579B72a2e3455915866Cf7e5C227b?chain=BSC) [Web3Capital](https://t.me/web3capitalofficial)
 
-`17:00 | WL |` [📲](https://gempad.app/presale/0xbB319E84a5ABAbd50cF45F80a56269e6168E8E94) [TowerOfGod](https://t.me/Towerofgodbsc)
-
-`19:00 | WL |`  [MetaEarn](https://t.me/metaearn_entry_portal)
-
-`19:00 | LA |`  [Hopium (ETH)](https://t.me/Hopium_Portal)
-
-`21:00 | LA |`  [CorgleyInu](https://t.me/corglyinu)
-
+20:00 | LA |  [MilkyFinance](https://t.me/MilkyFinance)
 
 **Today Launch List is provided by 3rd party**
 
