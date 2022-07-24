@@ -5,27 +5,29 @@ Looking for a quick flip? Want to get that inner degen out? Here are some additi
 
 ## Featured Play
 
-🌀 *Spiral*: Launched on July 20th - this token appears to be linked to, or the same entity that deployed $Floki
-[Telegram](https://t.me/SpiralPortal) | [Chart](https://www.dextools.io/app/ether/pair-explorer/0x11a708ded0fe503bbbf43d2baf403120dc5e145c)
+🌒 Lunatics - Designed to both burn & reward holders with Luna Classic at every transaction
+KYCed and Audited, CMC and CG after launch, Contract Dev is KRAKOVIA, Doxxed Team, 2000 Lunatics NFT's in pipeline. 
+Big burning events/rallies are planned for the future. 
+[Telegram](https://t.me/LunaticsTokenOfficial) | [Chart](https://app.nexuscrypto.com/token/bsc/0x2A48eCe377b87ce941406657B9278b4459595E06)
 
-## Today's Tracked Projects for July 22nd
+## Today's Tracked Projects for July 24th
 _Times are GMT_
 
- TBA  | LA | [📲](https://www.pinksale.finance/launchpad/0x9589E29af9a85329384bB91b81f3487ED1f835F3?chain=BSC) [Lunatics](https://t.me/LunaticsTokenOfficial)
+`12:00 | LA |`  [QatarLaeeb](https://t.me/Qatarlaeeb)
 
-09:00 | FL | [📲](https://www.pinksale.finance/launchpad/0xeeEE8a091E63cE6De37Fe1eBC101170E84811449?chain=BSC) [Alkebuland](https://t.me/AlkebulandOfficial)
+`13:00 | LA |`  [MXM](https://t.me/Mxm_en)
 
-13:00 | WL |  [Siuuuu](https://t.me/siuuugroup)
+`14:00 | WL |`  [JudgementDay](https://t.me/Judgmentday_EN)
 
-13:00 | LA | [📲](https://www.pinksale.finance/launchpad/0x3D7EACCAaD25E9D4568b9eaae585935DB00b4E10?chain=BSC) [PiDoge](https://t.me/Pidogeglobal)
+`16:00 | WL |`  [CrossXFi](https://t.me/crossxfi)
 
-13:00 | WL |  [WorldCupToken](https://t.me/WCTokenGlobal)
+`17:00 | FL |`  [WorldOfCocks](https://t.me/WorldOf_Cocks_chat)
 
-14:00 | UN |  [Drive2Earn](https://t.me/Drive2Earn_Global)
+`17:00 | FL |`  [VRTrinity](https://t.me/VrTrinity20)
 
-14:00 | FL | [📲](https://www.pinksale.finance/launchpad/0x0698AC37537579B72a2e3455915866Cf7e5C227b?chain=BSC) [Web3Capital](https://t.me/web3capitalofficial)
+`17:00 | PP |`  [ShieldDAO](https://t.me/shield_reserve)
 
-20:00 | LA |  [MilkyFinance](https://t.me/MilkyFinance)
+`17:00 | WL |` [📲](https://www.pinksale.finance/launchpad/0x33CDAdd402d916CeE7Defc66Eb6196B0fA4a2899?chain=BSC) [IMov](https://t.me/IMOVofficial)
 
 **Today Launch List is provided by 3rd party**
 
