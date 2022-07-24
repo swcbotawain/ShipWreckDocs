@@ -1,5 +1,5 @@
 
-# HOUSE OF THE DRAGON BSC TOKEN
+# HOUSE OF THE DRAGON BSC TOKEN 🐉
 
 ![](https://files.catbox.moe/8i7akb.jpg)
 
