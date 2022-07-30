@@ -5,35 +5,45 @@ Looking for a quick flip? Want to get that inner degen out? Here are some additi
 
 ## Featured Play
 
-🌱BEANS GROW 
-This one is from a well known dev (XRP 2.0) 😱😱 who last project did 400X. BEANS GROW has the potential to go high and ride beyond the moon 🌙 
-[Telegram](https://t.me/BeansGrow) | [Chart](https://app.nexuscrypto.com/token/bsc/0x99ebD302896c147a8d3875F30C6B8414fD80342E) 
+🦭SeaDoge: In a space plagued by self-interested devs, callers, and investors alike, we decided to combat the dog-eat-dog world of the BSC. 
+[Telegram](https://t.me/seadogge) | [Chart](https://app.nexuscrypto.com/token/bsc/0xC08FC002C5FA45A5c8451a84d3E7145364AC6D1f) 
 
 
-## Today's Tracked Projects for July 28th
+## Today's Tracked Projects for July 30th
 _Times are GMT_
 
-`10:00 | FL |`  [RestN](https://t.me/RestnOfficial)
+`00:00 | PP |` [📲](https://www.pinksale.finance/launchpad/0xfcf2809bcf65c2e1d22f96e90f33f16585bb966e?chain=BSC) [Fuel](https://t.me/FuelToken)
 
-`13:00 | FL |`  [BellaInu](https://t.me/bellainu1)
+`12:00 | PP |` [📲](https://www.pinksale.finance/launchpad/0x0c1bd97f669a30d9c3e52805bb86919ab0014f3e?chain=BSC) [XCap](https://t.me/Xcap_finance)
 
-`14:00 | LA |` [📈](https://app.nexuscrypto.com/token/bsc/0x39fdc8620aa464b80fa39aa4190a68c164d6a8cb)[📲](https://www.pinksale.finance/launchpad/0x52ec4cB4464C18dE6F1EdEEE10b7Bd92d295E6Ca?chain=BSC) [SaudiDAO](https://t.me/SaudiDAOOfficial)
+`12:00 | FL |` [📲](https://www.pinksale.finance/launchpad/0x18980f2042CC79183acB56cBB74621e8Ca014155?chain=BSC) [Driven](https://t.me/DRIVEN01)
 
-`14:00 | FL |` [📈](https://app.nexuscrypto.com/token/bsc/0x8af33e39214c3ce3c367ccc923ee74b49cd4bc05)[📲](https://www.pinksale.finance/launchpad/0x9B15BaFB092bccc17479E8508Dc6e3D8D36AD50A?chain=BSC) [Artex](https://t.me/artexcommunity)
+`14:00 | FL |` [📈](https://app.nexuscrypto.com/token/bsc/0x7c733385858031f8fbc00e621930df80c9bc2a27)[📲](https://www.pinksale.finance/launchpad/0x4B21f0E9671c27ac554Bb1d33Dd56BdbA6Cc45b1?chain=BSC) [LiverpoolFan](https://t.me/LiverPoolFanToken_Official)
 
-`14:00 | LA |` [📲](https://www.pinksale.finance/launchpad/0xDBcFd559d4Cb7a6a107c41592EA1274718fC008e?chain=BSC) [LuluMarkets](https://t.me/lulumarkets)
+`14:15 | UN |`  [SocaInu](https://t.me/SocaInu)
 
-`14:00 | FL |`  [Web3Capital](https://t.me/web3capitalofficial)
+`15:00 | LA |` [📲](https://www.pinksale.finance/launchpad/0x8a3299E01F23Cb7e2F0558f0b394291Ba747FAf3?chain=BSC) [RestN](https://t.me/RestnOfficial)
 
-`14:00 | WL |`  [KillerShiba](https://t.me/KillerShibaEnglish)
+`15:00 | LA |` [📲](https://www.pinksale.finance/launchpad/0x020d4f67581C95bf9916592024b475410791B55B?chain=BSC) [WarriorFantasty](https://t.me/WarriorFantasyBSC)
 
-`15:00 | FL |`  [DiversionDAO](https://t.me/DiversionDao)
+`15:00 | PP |` [📲](https://www.pinksale.finance/launchpad/0x76c9cd703924cf7f5314f4eb0c8a4335e3853bf8?chain=BSC) [AstroCash](https://t.me/astrocashglobal)
 
-`15:00 | PP |`  [GriffinArt](https://t.me/griffinart)
+`15:00 | FL |` [📲](https://www.pinksale.finance/launchpad/0xffcb9ab2c00c4cf402543820000803e95c8acfce?chain=BSC) [FishGun](https://t.me/fishguncryptoglobal)
 
-`15:00 | PP |`  [Goaty](https://t.me/GoatyOfficial)
+`16:00 | WL |`  [VaultFinance](https://t.me/TheVaultFinance)
 
-`16:00 | FL |`  [TowerOfGod](https://t.me/Towerofgodbsc)
+`16:00 | PP |` [📲](https://www.pinksale.finance/launchpad/0xe1803f4042db2e466a76ec7580ccfd55d9905ccf?chain=BSC) [CryptoPositive](https://t.me/CryptoPositiveToken)
+
+`16:00 | WL |` [📲](https://www.pinksale.finance/launchpad/0x9295db54bc7edc068a40a8403aa51eb595df327c?chain=BSC) [BeyondPay](https://t.me/bpaycommunity)
+
+`17:00 | FL |`  [MortalDoge](https://t.me/MortalDoge)
+
+`17:00 | PP |`  [NetraSocialFi](https://t.me/NetrasocialFi)
+
+`18:00 | FL |` [📲](https://www.pinksale.finance/launchpad/0xcbc6657eab01b1D59161C4fF262c963a79494095?chain=BSC) [DriveCrypto](https://t.me/drivecrypto_official)
+
+`20:30 | PP |` [📲](https://www.pinksale.finance/launchpad/0xA9C9dD1aA9d1B3A4De38679fa17720CfB328d3A8?chain=BSC) [FXG](https://t.me/FXG_EN)
+
 
 **Today Launch List is provided by 3rd party**
 
