@@ -5,34 +5,40 @@ Looking for a quick flip? Want to get that inner degen out? Here are some additi
 
 ## Featured Play
 
-🦭SeaDoge: In a space plagued by self-interested devs, callers, and investors alike, we decided to combat the dog-eat-dog world of the BSC. 
-[Telegram](https://t.me/seadogge) | [Chart](https://app.nexuscrypto.com/token/bsc/0xC08FC002C5FA45A5c8451a84d3E7145364AC6D1f) 
+💵*BeyondPay*: 0 tax, audited, 600 BNB presale filled. BeyondPay aims to become the next web3 point of sale cryptocurrency with BPAY token merchants integration and users SCSV. Ingress Incubated.
+[Telegram](https://t.me/bpaycommunity) | [Chart](https://app.nexuscrypto.com/token/bsc/0x516314b6061d484cef8acbce802ae0e5a2000db3)
 
-
-## Today's Tracked Projects for July 31sr
+## Today's Tracked Projects for August 2nd
 _Times are GMT_
 
-00:00 | LA | [📲](https://www.pinksale.finance/launchpad/0xfcf2809bcf65c2e1d22f96e90f33f16585bb966e?chain=BSC) [Fuel](https://t.me/FuelToken)
+13:00 | WL |  [WorldCupQatar](https://t.me/WCQofficial)
 
-11:00 | LA | [📲](https://www.pinksale.finance/launchpad/0x8a3299E01F23Cb7e2F0558f0b394291Ba747FAf3?chain=BSC) [RestN](https://t.me/RestnOfficial)
+14:00 | PP |  [FITE](https://t.me/FITEOfficial)
 
-13:00 | WL |  [DogeDevil](https://t.me/DogeDevilInuBSC)
+15:00 | FL | [📲](https://www.pinksale.finance/launchpad/0x77ee268416EC5f2Dd9Bb6Fd13a64Ba21A7eedd42?chain=BSC) [LunoVerse](https://t.me/Lunoverse)
 
-14:00 | LA | [📈](https://app.nexuscrypto.com/token/bsc/0x7c733385858031f8fbc00e621930df80c9bc2a27)[📲](https://www.pinksale.finance/launchpad/0x4B21f0E9671c27ac554Bb1d33Dd56BdbA6Cc45b1?chain=BSC) [LiverpoolFan](https://t.me/LiverPoolFanToken_Official)
+15:00 | FL |  [Astrocash](https://t.me/astrocashglobal)
 
-14:00 | WL |  [BNBGunFire](https://t.me/BNBGunFire)
+16:00 | LA | [📈](https://app.nexuscrypto.com/token/bsc/0x21b872897913d4adec7e301d8c033d45b895194d)[📲](https://gempad.app/presale/0x1Da4879490B8e706dB965Db224a6be8603BB6E4C?chainId=56) [MeishaInu](https://t.me/MeishuInu_Portal)
 
-14:00 | WL |  [FrenchFootball](https://t.me/frenchfootball1000x)
+16:00 | FL |  [BullStep](https://t.me/bullstepofficial)
 
-14:00 | WL |  [CheCoinDAO](https://t.me/CheCoinRevolution)
+16:00 | WL |  [WorldFootball](http://t.me/WorldFootballToken)
 
-16:00 | LA |  [VaultFinance](https://t.me/TheVaultFinance)
+16:00 | LA |  [Scro](https://t.me/scro_eth)
 
-16:00 | LA | [📲](https://www.pinksale.finance/launchpad/0x9295db54bc7edc068a40a8403aa51eb595df327c?chain=BSC) [BeyondPay](https://t.me/bpaycommunity)
+17:00 | LA |  [IkolF](https://t.me/ikolf_official)
 
-16:00 | LA |  [RetroInu](https://t.me/RetroInu_bsc)
+17:00 | LA | [📲](https://gempad.app/presale/0x710AC65841dDf748BBf4dC58e7C97AcdCa2Ea3A7?chainId=56) [Arcadia](https://t.me/ArcadiaP2E)
 
-18:00 | LA |  [FifaInu](http://t.me/FINUgroup)
+17:00 | LA |  [HipHopDoge](https://t.me/HipHopDogeBsc)
+
+20:00 | LA | [📈](https://app.nexuscrypto.com/token/bsc/0xbe93af2d00288f7e1e9056a6d069d1bb3c460cc7)[📲](https://gempad.app/presale/0x176aF472B6D29b273F56234869B143Be9D538E35?chainId=56) [Phoenix](https://t.me/PhoenixOfficialBsc)
+
+23:00 | PP |  [GridCraft](https://t.me/gridcraft)
+
+23:00 | FL |  [Tate](https://t.me/TateTokenBSC)
+
 
 **Today Launch List is provided by 3rd party**
 
