@@ -6,55 +6,40 @@ Looking for a quick flip? Want to get that inner degen out? Here are some additi
 ## Featured Play
 
 
-🦐 *ShrimpGrow* is set out to become the biggest and safest utility meme coin on the BSC. Launched by a solid team of Eth whales, this did 170x on the first day.
-[Telegram](https://t.me/ShrimpGrow) | [Chart](https://app.nexuscrypto.com/token/bsc/0x9b911e0efd7b7e9d781c8d20a6a6b32612ecea88)
+🐶*MILO INU* is the underdog for now but soon this will change and Milo will take the world by storm with our animated series and strong community. 
+[Telegram](https://t.me/MiloInu) | [Chart](https://app.nexuscrypto.com/token/bsc/0xd9de2b1973e57dc9dba90c35d6cd940ae4a3cbe1)
 
-## Today's Tracked Projects for August 15th
+## Today's Tracked Projects for August 16th
 _Times are GMT_
 
- `TBA  | PP |` [📲](https://www.pinksale.finance/launchpad/0xFE42EB2edC1EE9432dFbEa867D945ba941AA4B55?chain=BSC) [Dansa](https://t.me/dansa_community)
+ `TBA  |    |`  [Bitnity](https://t.me/bitnity)
 
- `TBA  | LA |` [📲](https://www.pinksale.finance/launchpad/0x226EDC4e00AE032701A2a20A7bdf4285a36074D6?chain=BSC) [GoldRushCasino](https://t.me/GoldRushCasinoOfficial)
+ `TBA  | WL |`  [Like1000x](https://t.me/like1000x)
 
- `TBA  | LA |` [📲](https://www.pinksale.finance/launchpad/0x871f6460fbf4857ad29e85b57182c0705c38bb55?chain=BSC) [LuckyDragon](https://t.me/LuckyDragonBSC)
+`00:00 | LA |` [📲](https://www.pinksale.finance/launchpad/0x871f6460fbf4857ad29e85b57182c0705c38bb55?chain=BSC) [LuckyDragon](https://t.me/LuckyDragonBSC)
 
- `TBA  | FL |` [📲](https://gempad.app/presale/0x79406fd609F7319168AAA9Af4a47Ab7a8343A54F) [VetMe](https://t.me/vetmetoken)
+`11:00 | WL |`  [BetX](https://t.me/betx_en)
 
-`06:00 | FL |`  [BounceNPlay](https://t.me/bouncenplay)
+`13:00 | LA |` [📈](https://app.nexuscrypto.com/token/bsc/0x256d1fce1b1221e8398f65f9b36033ce50b2d497)[📲](https://www.pinksale.finance/launchpad/0x128273351Be2A83A2F6B923fDe9aFC52117523d7?chain=BSC) [Alvey](https://t.me/AlveyChain)
 
-`12:00 | WL |` [📲](https://www.pinksale.finance/launchpad/0x0c1bd97f669a30d9c3e52805bb86919ab0014f3e?chain=BSC) [XCap](https://t.me/Xcap_finance)
+`13:00 | LA |` [📲](https://www.pinksale.finance/launchpad/0x758E0b3a8be3943d8E6775884F712E080B4F9990?chain=BSC) [FifaSport](https://t.me/FiFaSportGroup)
 
-`12:30 | WL |`  [ShibaCup](https://t.me/ShibaCUPEN)
+`13:00 | LA |` [📲](https://www.pinksale.finance/launchpad/0xEe7FAA087E7219DaAf9F7bbAc66aF83b32C6bF99?chain=BSC) [TechnoLand](https://t.me/technolandofficial)
 
-`13:00 | WL |`  [SDT](https://t.me/SDTLiveChat)
+`14:00 | LA |` [📲](https://www.pinksale.finance/launchpad/0x7a265a8Ce779169ce125afC2CD318e6B0921875a?chain=BSC) [MinaBot](https://t.me/minabot_global)
 
-`13:00 | WL |`  [FifaSport](https://t.me/FiFaSportGroup)
+`14:00 | WL |`  [BabyChihuahua](https://t.me/BabyChiHuaHua_Global)
 
-`14:00 | FL |`  [StrikeN](https://t.me/StrikeN_Official)
+`16:00 | WL |`  [BasenJi](https://t.me/basenjibsc)
 
-`14:00 | WL |`  [MinaBot](https://t.me/minabot_global)
+`16:20 | FL |`  [RubberDuckies](https://t.me/rubberfinance)
 
-`15:00 | WL |`  [SunDAO](https://t.me/SunDaoCommunity)
+`19:00 | FL |`  [CyberWorldProject](https://t.me/thecyberworldproject)
 
-`15:00 | WL |`  [Project21](https://t.me/Project21_chat)
+`19:15 | FL |`  [GoldDogeSachs](https://t.me/GolddogeSachs)
 
-`15:00 | PV |`  [Citizens](https://t.me/CitizensOfficial)
+`20:00 | PP |`  [Snypr (Sacrifice)](https://t.me/RyzrSwap)
 
-`15:00 | FL |`  [TechnoLand](https://t.me/technolandofficial)
-
-`15:30 | PP |`  [BikeN](https://t.me/BIKEN_OFFICIAL)
-
-`16:00 | LA |` [📲](https://www.pinksale.finance/launchpad/0xfD2Fa794d4152bbBC827df6AB446a85B1E78055E?chain=BSC) [MortalDoge](https://t.me/MortalDoge)
-
-`16:00 | WL |` [📲](https://www.pinksale.finance/launchpad/0xcfaef261754b42d8330c7c476672a1ed821af81e?chain=BSC) [MetaStock](https://t.me/metastockportal)
-
-`18:00 | WL |`  [Bitnity](https://t.me/bitnity)
-
-`19:00 | LA |`  [RatTrap](https://t.me/RATTRAPTOKEN)
-
-`20:50 | FL |`  [Blackdoge](https://t.me/blackdogeen)
-
-`22:10 | FL |`  [Alvey](https://t.me/AlveyChain)
 
 **Today Launch List is provided by 3rd party**
 
