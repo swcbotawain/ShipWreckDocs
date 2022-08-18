@@ -15,6 +15,6 @@ GroBat is a deflationary token Launched on the Bsc chain with massive BUSD rewar
 5% marketing wallet
 
 ## Links
-[Website](https://www.grobattoken.com/)
-[Telegram](https://t.me/Grobatbsc)
-[Chart](https://app.nexuscrypto.com/token/bsc/0xc1802bebc3ff1408cc6324caf600e680c3f5e8b7)
+- [Website](https://www.grobattoken.com/)
+- [Telegram](https://t.me/Grobatbsc)
+- [Chart](https://app.nexuscrypto.com/token/bsc/0xc1802bebc3ff1408cc6324caf600e680c3f5e8b7)
