@@ -3,8 +3,8 @@
 
 ## Spotlight Gems
 
-- 🏞[Artex](artex.md): first and only blockchain-based art investment platform
-- 🌷[Mind](mind.md): bringing mental health wellness to crypto
-- 🛶[CryptoRafting](cryptorafting.md), NFT play, compete and earn game
-- 🌍[Kyoto](kyoto.md): High APY token, evolving into a L1 Carbon credit blockchain
-- 🎬[Blockflix](blockflix.md): stream hiqh quality content paid for with crypto 
+- 🚀[Fight 4 Hope](f4h.md): Fight4Hope - highest quality P2E NFT space game
+- 🌳[Royal Tree Miner](royaltree.md): Miner with up to 10% daily APY
+- 🏎[Block Riders](blockriders): NFT racing game
+- 🦇[GroBat](grobat): BUSD rewards and unique Nft Autostaking
+- 💩[PooChain](poochain) : launching the worlds 1st MEME Coin Blockchain
