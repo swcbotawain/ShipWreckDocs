@@ -18,6 +18,6 @@ _The Exclusive Memecoins Blockchain_
 Also from the team, the 1st meme coin that will migrate to Poochain on launch:
 
 ## Links
-[Website](https://poochain.co/)
-[Telegram](http://t.me/PooChainPortal)
-[Chart](https://app.nexuscrypto.com/token/bsc/0xa1611E8D4070dee36EF308952CF34255c92a01c5)
+- [Website](https://poochain.co/)
+- [Telegram](http://t.me/PooChainPortal)
+- [Chart](https://app.nexuscrypto.com/token/bsc/0xa1611E8D4070dee36EF308952CF34255c92a01c5)
