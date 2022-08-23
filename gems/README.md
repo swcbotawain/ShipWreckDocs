@@ -9,4 +9,3 @@
 - 🌳[Royal Tree Miner](royaltree.md): Miner with up to 10% daily APY
 - 🏎[Block Riders](blockriders): NFT racing game
 - 🦇[GroBat](grobat): BUSD rewards and unique Nft Autostaking
-- 💩[PooChain](poochain) : launching the worlds 1st MEME Coin Blockchain
