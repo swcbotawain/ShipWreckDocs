@@ -5,32 +5,40 @@ Looking for a quick flip? Want to get that inner degen out? Here are some additi
 
 ## Featured Play
 
-🦝Rocket Raccoon: an innovative next-generation blockchain-based platform designed to enhance participants' and be the meeting point between technology, farms and entertainment
-[Telegram](https://t.me/RocketRaccoonChat) | [Chart](https://poocoin.app/tokens/0xaa8f550ed21ae4ece978f4141c4551d1deb7390a)
 
-## Today's Tracked Projects for August 29th
+♓ *HyperonChain* is Delegated Proof Of Stake (DPoS) consensus algorithm based blockchain project with own Ecosystem. Hyperon Chain code is available on GitHub. Hyperon Chain is audited  and SAFU
+[Telegram](https://t.me/HyperonChain) | [Chart](https://app.nexuscrypto.com/token/bsc/0xe3d2ba4ebcc6e9ae3569d6418bc2eaabb8feef60)
+
+## Today's Tracked Projects for August 31st
 _Times are GMT_
 
-`12:00 | LA |` [📈](https://app.nexuscrypto.com/token/bsc/0xe4a9f9bd83802766bb7bac63c1aa6fd8461978af)[📲](https://www.pinksale.finance/launchpad/0x608d6A675d0b4D7F57B3e1e4994190fd3F10B02E?chain=BSC) [Doxdit](https://t.me/doxdit)
+`09:30 | LA |`  [GoonsNFT](https://t.me/goonsnft)
 
-`12:00 | FL |` [📲](https://www.pinksale.finance/launchpad/0xeC3C1a5881E4AB7eF94987258c2a0560339Adc34?chain=DogeChain) [XDoge](https://t.me/XDOGEChain)
+`12:00 | FL |` [📲](https://www.pinksale.finance/launchpad/0x091dd4d1C5345668b860f2530Fae210416394efA?chain=BSC) [ReadFi](https://t.me/ReadFiOfficial)
 
-`13:00 | FL |` [📲](https://www.pinksale.finance/launchpad/0x2427BFb00210f6bf014Ea1BE99F69423df34aA6E?chain=BSC) [BeatMaker](https://t.me/BeatMakerToken)
+`13:00 | PV |` [📲](https://www.pinksale.finance/private-sale/0x7FA1232E5bcEcEDa211552B7A6C6659d1165F28A/?chain=BSC) [BitzenSpace](https://t.me/BitzenSpace)
 
-`13:30 | WL |` [📈](https://app.nexuscrypto.com/token/bsc/0x46c6a6013986f30cc427b380ed192bdfaa43aee9)[📲](https://www.pinksale.finance/launchpad/0x7498a6C07dEe33FEE7949FB25E1B57Db6097DE07?chain=BSC) [ChihuahaFamily](https://t.me/ChihuahuaFamilyEN)
+`14:00 | WL |` [📲](https://ethdao.vercel.app/) [ETHDAO](https://t.me/ETHDAOD)
 
-`15:00 | LA |` [📈](https://app.nexuscrypto.com/token/bsc/0xe3d2ba4ebcc6e9ae3569d6418bc2eaabb8feef60)[📲](https://www.pinksale.finance/launchpad/0x558C8C39ec3d64e9350D30c8223116A28E3460c3?chain=BSC) [HyperonChain](https://t.me/HyperonChain)
+`15:00 | FL |` [📲](https://www.pinksale.finance/launchpad/0x4bbea9f465ab101b6436f7cda3460e2d17b1e6c2?chain=BSC) [CrazyPanda](https://t.me/CrazypandaGroup)
 
-`15:00 | LA |` [📈](https://app.nexuscrypto.com/token/bsc/0x6aa97d60bf8647159e3b46c1a6a5132f1c740b54)[📲](https://www.pinksale.finance/launchpad/0x680b6cfa67ce01fc50df10c53b1ade2d8ff335c5?chain=BSC) [Qatar Inu](https://t.me/QatarinuBSC)
+`15:00 | WL |` [📲](https://gempad.app/presale/0xB93Be7b8703f419dd4b2898B896E94257de5baf5?chainId=56) [AnfiWorld](https://t.me/AniFiWorld)
 
-`16:00 | WL |` [📈](https://app.nexuscrypto.com/token/bsc/0xa17a7555587d371e17a2e27c48077686e8a0998f)[📲](https://www.pinksale.finance/launchpad/0x74303CF423588368ea07E170C6A8A0FF600A0691?chain=BSC) [LogeofTheRings](https://t.me/logeoftherings)
+`16:00 | FL |` [📲](https://www.pinksale.finance/launchpad/0xdEE4cB53b51D996b12AD49eF8504EEA8495D283d?chain=BSC) [ChihuahaFamily](https://t.me/ChihuahuaFamilyEN)
 
-`16:00 | WL |` [📈](https://app.nexuscrypto.com/token/bsc/0x2c0e76dade015bc390a13c1b80cc1bafd9edd326)[📲](https://www.pinksale.finance/launchpad/0xB905853158FBA406A9Ee7609160182D90Ab8df0B?chain=BSC) [HalloweenFloki](https://t.me/halloweenfloki_official)
+`16:00 | LA |` [📈](https://app.nexuscrypto.com/token/bsc/0xa17a7555587d371e17a2e27c48077686e8a0998f)[📲](https://www.pinksale.finance/launchpad/0x74303CF423588368ea07E170C6A8A0FF600A0691?chain=BSC) [LogeofTheRings](https://t.me/logeoftherings)
 
-`16:00 | SB |` [📈](https://app.nexuscrypto.com/token/bsc/0xebcd1cabb7b1ff137b74303771c9076ca37583ae)[📲](https://www.pinksale.finance/launchpad/0xfeF404f5D35bC33314FbE1a1881C79621bB1D488?chain=BSC) [MusicVerse](https://t.me/MusicVerse_BSC)
+`16:00 | PP |` [📈](https://app.nexuscrypto.com/token/bsc/0x2c0e76dade015bc390a13c1b80cc1bafd9edd326)[📲](https://www.pinksale.finance/launchpad/0xB905853158FBA406A9Ee7609160182D90Ab8df0B?chain=BSC) [HalloweenFloki](https://t.me/halloweenfloki_official)
 
-`17:00 | WL |` [📈](https://app.nexuscrypto.com/token/bsc/0xd1fd08dbfd25fc108e8a72d90fce27e518144edf)[📲](https://gempad.app/special/0x716183417E06d59aCd9911A4Fa269fb3D72694C4?chainId=56) [Rafflet](https://t.me/RAFFLET_Official)
+`16:00 | FL |`  [InsuranceFi](https://t.me/insurancefi_official)
 
+`17:00 | FL |` [📲](https://www.pinksale.finance/launchpad/0x99586dAd8C16c762C2A5e2931E38E8F223C8446C?chain=BSC) [PacMate](https://t.me/pacmate_en)
+
+`19:00 | WL |`  [SafeLayer](https://t.me/safehavendefi)
+
+`20:00 | LA |` [📈](https://app.nexuscrypto.com/token/bsc/0x16fc5da7976deb95188c14757e8504c86db0359a)[📲](https://www.pinksale.finance/launchpad/0xD5C9405DeEB443d81aB7bD58209341816f86D170?chain=BSC) [RewardMiner](https://t.me/rewardminercoin)
+
+`21:00 | FL |`  [CryptoRoulette](https://t.me/cryptoroulettelive)
 
 **Today Launch List is provided by 3rd party**
 
