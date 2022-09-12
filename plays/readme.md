@@ -11,20 +11,29 @@ Looking for a quick flip? Want to get that inner degen out? Here are some additi
 ## Today's Tracked Projects for September 9th
 _Times are GMT_
 
-11:00|LA|0/0|  [Monopolon](https://t.me/Monopolon)
-12:59|FL|10/10| [📈](https://app.nexuscrypto.com/token/bsc/0x78bfcd7fde118b0af05c5a940617191f74ef8a13)[📲](https://www.pinksale.finance/launchpad/0xFd4540d45A316EA12C0e92aaD123863F34A34922?chain=BSC) [FIFAapp](https://t.me/FIFAPPofficial)
-13:00|LA|5/5| [📈](https://app.nexuscrypto.com/token/bsc/0xe3008623c9cd91536777e5b8a7b0f22eb03fe59b)[📲](https://www.pinksale.finance/launchpad/0xA38e2E1AFFDF1C5EC217Ecf6b61A19e29C6F83Ed?chain=BSC) [AncientWarfare](https://t.me/ancientwarfare)
-13:00|VC|0/0|  [JUNI AMA](https://t.me/ZLaunchBotOfficialChat)
-13:00|WL|0/0| [📈](https://app.nexuscrypto.com/token/bsc/0xbf2a2828c7df44afe0ef2c14910e29b9878d9695)[📲](https://www.pinksale.finance/launchpad/0xEfBA0aD53C8010887E1e2c1206A10e566f31de1E?chain=BSC) [Sport2K75](https://t.me/Sports2K75)
-14:00|LA|1/1| [📈](https://app.nexuscrypto.com/token/bsc/0xa301a2af1c5bf43b77619296c8ca8834e647401c)[📲](https://www.pinksale.finance/launchpad/0x944A94C30eC09e2C8929AFf803B2Ba419e71b370?chain=BSC) [Bernese](https://t.me/Bernese_office)
-14:00|FL|10/10| [📈](https://app.nexuscrypto.com/token/bsc/0x4cce7603910b5c388467da2e497d32ba37b934af)[📲](https://www.pinksale.finance/launchpad/0x2b2691F0fBc7612b449fd3702bB2a8BdAF3e9179?chain=bsc) [QatarBet](https://t.me/qatarbetio)
-15:00|LA|0/0| [📈](https://app.nexuscrypto.com/token/bsc/0xcab9575f4bf9a846a58fcbe1a96af3e4bd770366)[📲](https://www.pinksale.finance/launchpad/0x1907c2fc23616b0aca9a9836ff7852b4e746274f?chain=BSC) [InDex](https://t.me/InDexSaleGlobal)
-15:00|LA|8/8| [📈](https://app.nexuscrypto.com/token/bsc/0x6f71d1495ed764e0e2d0e563c298582af4613121)[📲](https://www.pinksale.finance/launchpad/0xAc7Babc396E2c276ac69D040BE1ce681fDC94Eb8?chain=BSC) [GDog](https://t.me/gdogofficial)
-17:00|WL|0/0| [📈](https://app.nexuscrypto.com/token/bsc/0xd1fd08dbfd25fc108e8a72d90fce27e518144edf)[📲](https://gempad.app/special/0x716183417E06d59aCd9911A4Fa269fb3D72694C4?chainId=56) [Rafflet](https://t.me/RAFFLET_Official)
-19:00|WL|9/9| [📈](https://app.nexuscrypto.com/token/bsc/0x929e7fb236648709660a737ae513c38c6e45bf09)[📲](https://www.pinksale.finance/launchpad/0xcE07861c440F24A4f5d73DCF436F73fc8f02B8ab?chain=BSC) [DogeBeer](https://t.me/dogebeer)
-20:00|LA|4/4| [📈](https://app.nexuscrypto.com/token/bsc/0x715b6441ee0bfebb95f0c783dfedbb0bd3d5880a)[📲](https://www.pinksale.finance/launchpad/0x358fbd2608e66ab23f5569796dc4da18ec391686?chain=BSC) [777](https://t.me/token777games)
-21:00|FL|0/5| [📈](https://app.nexuscrypto.com/token/bsc/0xc6775a74a0113e1efe7b1ca21f9a2ef8c86ef3c4)[📲](https://www.pinksale.finance/launchpad/0x9d252cAffbDdfb169e2F790FDd159B5dC024710b?chain=BSC) [DarkWeb3](https://t.me/darkweb3_official)
-22:30|FL|10/15| [📈](https://app.nexuscrypto.com/token/bsc/0xbdff32474e3b2fde9ff306b9a8beffbc3c3dc0fd)[📲](https://www.pinksale.finance/launchpad/0x1a78c89B1B5aC75997a5AD565debb762a7d812Ed?chain=BSC) [BlackDoge](https://t.me/blackdogeen)
+`13:00|WL|0/0|` [📈](https://app.nexuscrypto.com/token/bsc/0xdacc0417add48b63cbefb77efbe4a3801aad51ba)[📲](https://www.pinksale.finance/launchpad/0x7df5181c7529E06A218aF49953F398f9012A9d6b?chain=BSC) [BitzenSpace](https://t.me/BitzenSpace)
+
+`13:00|PP|1/1|` [📈](https://app.nexuscrypto.com/token/bsc/0x8ef7b731d8be5b66a8fcbc330e4ae502de483ed2)[📲](https://evergrowegc.com/lucro-help/) [Lucro](https://t.me/evergrowcoin)
+
+`14:00|FL|0/0|` [📈](https://app.nexuscrypto.com/token/bsc/0x3f1f7a4d8f17294ee1910b526296cdf5c9bfcc7c)[📲](https://www.pinksale.finance/launchpad/0xc5E7DDa02194dE134E3107AE87ddee5d953F199B?chain=BSC) [PinkPiggyFi](https://t.me/pinkpiggyfinance)
+
+`15:00|WL|0/0|` [📈](https://app.nexuscrypto.com/token/bsc/0x5352923b87a0af786f84e91bfaa4394c0283f306)[📲](https://www.pinksale.finance/launchpad/0xc70F352f2E1e3b11A5bB5f8b901e985C32899c83?chain=BSC) [MetaXBet](https://t.me/MetaXBetOfficial)
+
+`15:00|FL|3/3|` [📈](https://app.nexuscrypto.com/token/bsc/0xb4192c333e6d38a5d2a21dcf8c83283f3c97ef3c)[📲](https://www.pinksale.finance/launchpad/0x6d723a69aFcBFc38ec0A6d56067C9EFACc5b80F1?chain=BSC) [ITube](https://t.me/iTubeCommunity)
+
+`16:00|SB|1/1|` [📈](https://app.nexuscrypto.com/token/bsc/0x6215740e2f1a450550d3a3380f6c563c90f0d016)[📲](https://www.pinksale.finance/launchpad/0x9161CF7fa4a2a1bD139a9207153E0dAeFCcFAd19?chain=BSC) [UFOFinance](http://discord.gg/UFOFinance)
+
+`17:00|LA|0/0|` [📈](https://app.nexuscrypto.com/token/bsc/0xa05f9fb902fe039e33e75347460bf3189024b98e)[📲](https://www.pinksale.finance/launchpad/0x9181b07551F229d5Bc39b0f1383c06F307C345e2?chain=BSC) [Social2E](https://t.me/social2e_global)
+
+`17:00|LA|4/4|` [📈](https://app.nexuscrypto.com/token/bsc/0xc5aae8e0ae06b3028e6ce723843cfbb44c02495b)[📲](https://www.pinksale.finance/launchpad/0xE9E16d4301b44B1Bb490ac78a1C773391288f2Ea?chain=BSC) [Browse](https://t.me/browsetoearn)
+
+`18:00|LA|12/12|` [📈](https://app.nexuscrypto.com/token/bsc/0x95aa33319698cf67c7ab33bb23a65e9d38397187)[📲](https://www.pinksale.finance/launchpad/0x18cdAde676e82e7C8290BAC3455c96C51eC2978A?chain=BSC) [JUNI](https://t.me/JackpotUniverse)
+
+`18:00|LA|0/0|` [📈](https://app.nexuscrypto.com/token/bsc/0xa29ba02e128503310a677bd7b52a0d81e7beffcb)[📲](https://www.pinksale.finance/launchpad/0x4a8aD262EBbCCfD6DeE5CA2C589f0548Be359E3c?chain=BSC) [Elevant](https://t.me/ElevantOfficial)
+
+`20:00|SB|8/8|` [📈](https://app.nexuscrypto.com/token/bsc/0x564c3e90ff5c4347affd550b1ad3d8984f27747c)[📲](https://www.pinksale.finance/launchpad/0x24eb4Bb1d52a836E744E95b69B009A754c38710a?chain=bsc) [PulseFi](https://t.me/PulseFi)
+
+`20:00|FL|5/5|` [📈](https://app.nexuscrypto.com/token/bsc/0x08c874349e2a5ddbbb32f9d008968a08803210a9)[📲](https://www.pinksale.finance/launchpad/0xB05e1757b224c515b015B05abe74CbFe97A25c59?chain=BSC) [BonsaiBTC](https://t.me/BonsaiBTC_Official)
 
 
 **Today Launch List is provided by 3rd party**
