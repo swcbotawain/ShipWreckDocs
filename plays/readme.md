@@ -5,30 +5,25 @@ Looking for a quick flip? Want to get that inner degen out? Here are some additi
 
 ## Featured Play
 
+🦑*Squid Black*: on a mission to revive the squid hype on BSC. with support from many well known names, Squid Black is setting new rules for this game.
+[Telegram](http://t.me/SquidBlackBSC) | [Chart](https://app.nexuscrypto.com/token/bsc/0x01733239a4179bec3a14fa2d34a03c7ab6f580e6)
 
-💂‍♂️*Spartan*: Dev of this super bullish project is a ratboy whale. Subjected to military training since childhood, Spartan soldiers were the most disciplined, committed and feared.
-[Telegram](https://t.me/SpartanTokenBsc) | [Chart](https://app.nexuscrypto.com/token/bsc/0x9d6b60b2281d687dc69b7634632ce3db9939c244)
 
-## Today's Tracked Projects for September 20th
+## Today's Tracked Projects for September 21st
 _Times are GMT_
 
-`14:00|WL|0/0|` [📈](https://app.nexuscrypto.com/token/bsc/0xf9503714b18d62fcf6183817851e7c2be314d2f1)[📲](https://www.pinksale.finance/launchpad/0x8C60dE43e35c87Adfc2c93CE626a4fc26c5ff102?chain=BSC) [XOPAD](https://t.me/XOPAD)
+`11:00|LA|6/6|` [📈](https://app.nexuscrypto.com/token/bsc/0x731a32591aab18efe6c03b23d38113511c64a559)[📲](https://www.pinksale.finance/launchpad/0x11787427a1847f3b722AB7e54c5cBDe89f64B669?chain=BSC) [QFC](https://t.me/QfcGlobal)
 
-`14:00|FL|0/0|` [📈](https://app.nexuscrypto.com/token/bsc/0x09c704c1eb9245af48f058878e72129557a10f04)[📲](https://www.pinksale.finance/launchpad/0x63197b5B445e23FE50ce8d045d847b338EEf01B2?chain=BSC) [Sweep](https://t.me/sweepproject)
+`14:00|LA|2/2|` [📈](https://app.nexuscrypto.com/token/bsc/0xcca47330f5276f27f376c3ff410e22849dc37842)[📲](https://www.pinksale.finance/launchpad/0x7a81fb672be9135537c7be55d1b6dbde7e4dee4e?chain=BSC) [SarabiChain](https://t.me/SarabiChain)
 
-`15:00|LA|0/2|` [📈](https://app.nexuscrypto.com/token/bsc/0x411c9119a976c238fd4b172b9dda11d7addb10c7)[📲](https://gempad.app/presale/0xe5c94bc4AB775E7Ef6910Ce4ff9905F5234c1Ab4?chainId=56) [Berliner](https://t.me/BerlinerCoin)
+`15:00|WL|7/7|` [📈](https://app.nexuscrypto.com/token/bsc/0x50c346a8b6b50a7334b02b9480df001c4112c0a3)[📲](https://www.pinksale.finance/launchpad/0xc298fE92485bf89847de1819A7b9f48DE8F45eD5?chain=BSC) [TopG](https://t.me/TopGFinance)
 
-`15:00|WL|6/6|` [📈](https://app.nexuscrypto.com/token/bsc/0x731a32591aab18efe6c03b23d38113511c64a559)[📲](https://www.pinksale.finance/launchpad/0x11787427a1847f3b722AB7e54c5cBDe89f64B669?chain=BSC) [QFC](https://t.me/QfcGlobal)
+`15:00|WL|0/4|` [📈](https://app.nexuscrypto.com/token/bsc/0x514d280f3df7af308c548a74f604318f09db32c7)[📲](https://www.pinksale.finance/launchpad/0xa5A48a6cdAC2611386e29f54E5dA858D180ee397?chain=BSC) [EPiggy](https://t.me/epiggyofficial/)
 
-`15:00|WL|2/2|` [📈](https://app.nexuscrypto.com/token/bsc/0x8fd6f1dc5f151311ea08c6903ae1e4a7de10e36d)[📲](https://www.pinksale.finance/launchpad/0x576aAD426a4E5BDa4B309e37A75CD16D4Af2164d?chain=BSC) [Chihuaha](https://t.me/ChihuahuaInSpace_Verification)
+`15:00|FL|1/1|` [📈](https://app.nexuscrypto.com/token/bsc/0x2247ddb673bd525af92694a54a97ade727b258f3)[📲](https://www.pinksale.finance/launchpad/0x992f6c6702c8eafd2edb9399d3bae7ed3c5dfd32?chain=BSC) [KingCharles](https://t.me/KingCharlesSpanielUK)
 
-`16:30|LA|8/8|` [📈](https://app.nexuscrypto.com/token/bsc/0xfd3dbb4709af9feeb87eb842cf6b6b5f37b30fac)[📲](https://www.pinksale.finance/launchpad/0x9F4bb30292812908f76e7941afc966fee90be699?chain=BSC) [Versatile](https://t.me/versa_official_portal)
+`18:00|LA|9/9|`  [EldenKnights](https://t.me/EldenKnightsOfficial)
 
-`18:00|LA|4/4|` [📈](https://app.nexuscrypto.com/token/bsc/0x22e88b8abecc7e510c98d55991c626d67cdc52ea)[📲](https://www.pinksale.finance/launchpad/0x7231C5E7aE1916a9E16e0969B29D45A9475eFbe2?chain=BSC) [Muscle-X](https://t.me/MuscleXOfficial)
-
-`18:00|WL|7/7|`  [AnimalCity](https://t.me/animalcitybsc)
-
-`19:00|WL|5/5|` [📈](https://app.nexuscrypto.com/token/bsc/0xa210544b87ca8e2fcc1f17ac6500c76a3c861cb5)[📲](https://www.pinksale.finance/launchpad/0x63eEfBeAaE2636e18a2facF7A0eCe060CC64Fd46?chain=BSC&utm_source=tokenpocket) [Spongebob](https://t.me/SpongeBob_Global)
 
 **Today Launch List is provided by 3rd party**
 
