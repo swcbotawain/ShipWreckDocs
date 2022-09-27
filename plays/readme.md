@@ -5,31 +5,30 @@ Looking for a quick flip? Want to get that inner degen out? Here are some additi
 
 ## Featured Play
 
+🕹*Baby FPS* was created by the top holder of the original FPS which hit 100M marketcap. Our aim is to give an opportunity for people who missed out on the main FPS and also bring more exposure to them
+[Telegram](https://t.me/BabyFPSToken) | [Chart](https://app.nexuscrypto.com/token/bsc/0xfffe03b9306df57aafe9d291ac906fbfb0b07be3)
 
-*DETH (ERC-20)*: Light and freedom is nigh. Policy is paper. Tape is red. All wither in the light of change. Change is in the hands of the people.Take the change with you, it is your own.
-[Medium](https://medium.com/@tolemij279/the-whisper-963613edfced) | [Chart](https://app.nexuscrypto.com/token/eth/0x62E971f69193e20adFA64f13594ee8654fC508aB)
 
-
-## Today's Tracked Projects for September 26th
+## Today's Tracked Projects for September 27th
 _Times are GMT_
 
-12:00|LA|9/9| [📈](https://app.nexuscrypto.com/token/bsc/0x0420eb45ac5a4f04763f679c07c3a637741e0289)[📲](https://www.pinksale.finance/launchpad/0xf50581D7882dB71EDE16146dC66908958C975d36?chain=BSC) [Doken](https://t.me/dokentoken)
+TBA |UN|  [DosaPass](https://t.me/DosaOfficial)
 
-13:00|WL|3/3| [📈](https://app.nexuscrypto.com/token/bsc/0xea258f698773e64ab508c8d87eb87d17ed14d97c)[📲](https://www.pinksale.finance/launchpad/0x1bEcE058574df382B4a141E5688A500760D3e3e0?chain=BSC) [WW4](https://t.me/WW4community)
+TBA |LA|1/1| [📈](https://app.nexuscrypto.com/token/bsc/0xa1fd9467602dcb6fe48f8e9b150b5c96af59ab24)[📲](https://www.pinksale.finance/launchpad/0x95Bf0fcc847A45DAF2B1218D666C8184AAa739A4?chain=BSC) [Hyperchain](https://t.me/HyperChainOfficial)
 
-15:00|LA|7/7| [📈](https://app.nexuscrypto.com/token/bsc/0x50c346a8b6b50a7334b02b9480df001c4112c0a3)[📲](https://www.pinksale.finance/launchpad/0xDF36978E38236CF51E8245321B58d25cF046140A?chain=BSC) [TopG](https://t.me/TopGFinance)
+12:00|WL| [📲](https://www.pinksale.finance/launchpad/0x446d285a3ff98AF67838308cF9689835822287AB?chain=BSC) [RocketCoin](https://t.me/RKCGlobal)
 
-15:00|WL|1/1| [📈](https://app.nexuscrypto.com/token/bsc/0xa1fd9467602dcb6fe48f8e9b150b5c96af59ab24)[📲](https://www.pinksale.finance/launchpad/0x95Bf0fcc847A45DAF2B1218D666C8184AAa739A4?chain=BSC) [Hyperchain](https://t.me/HyperChainOfficial)
+13:00|LA|3/3| [📈](https://app.nexuscrypto.com/token/bsc/0xea258f698773e64ab508c8d87eb87d17ed14d97c)[📲](https://www.pinksale.finance/launchpad/0x1bEcE058574df382B4a141E5688A500760D3e3e0?chain=BSC) [WW4](https://t.me/WW4community)
 
-16:00|FL|9/9| [📈](https://app.nexuscrypto.com/token/bsc/0xb4bc433919c1677da71c2e046731a8599808c2f4)[📲](https://www.pinksale.finance/launchpad/0x00a740168BD4784aa5E51f84F0c15679F2981CF9?chain=BSC) [SpaceInu](https://t.me/spaceinutoken)
+15:00|WL|  [CryptoLegions](https://t.me/CryptoLegionsCommunity)
 
-16:00|LA|2/2| [📈](https://app.nexuscrypto.com/token/bsc/0xd9fc762e2d1899aad7233de46ff9a36d034c4ffb)[📲](https://www.pinksale.finance/launchpad/0x9945AF292E99cA17f68F83df25b79572054AA703?chain=BSC) [MetaWar](https://t.me/MetaWarP2E)
+15:00|PP| [📲](https://www.pinksale.finance/launchpad/0x68D275A2E267e0ae96b1F7A1F2Bd95c454403927?chai) [MetaXBet](https://t.me/metaxbetofficial)
 
-17:00|WL|0/0|  [StarMoon](https://t.me/StarMoonMission)
+15:00|SB| [📲](https://www.pinksale.finance/launchpad/0x68D275A2E267e0ae96b1F7A1F2Bd95c454403927?chain=BSC) [StakeProtocol](https://t.me/StakeProtocol)
 
-20:00|LA|4/6| [📈](https://app.nexuscrypto.com/token/bsc/0x6669ec024b79ef8d56ebc4dbe1dbe548147d3ea1)[📲](https://www.pinksale.finance/launchpad/0xcED4dc62D1A4Bb2e4299B31BD0111eeb09dfD5D2?chain=BSC) [PuzzleInu](https://t.me/PUZZLEINU)
+18:00|LA|  [FifaCards](https://t.me/fifacardsportal)
 
-22:00|FL|6/6| [📈](https://app.nexuscrypto.com/token/bsc/0x24a8eb1b906bb10d79351d4a65abed56bafa0b0f)[📲](https://www.pinksale.finance/launchpad/0x151b3004a2da2Ac0a3e7CC1B60cD60e0Ab507108?chain=BSC) [TT2E](https://t.me/TT2EFINANCE)
+19:00|WL| [📲](https://gempad.app/presale/0x63694C51fa4dAbf5E48f6a27C2abf636D67E4E13?chainId=56) [Blocvest](https://t.me/BlocVaultOfficial)
 
 
 **Today Launch List is provided by 3rd party**
