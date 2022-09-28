@@ -1,4 +1,4 @@
-# Project Daylight 
+# Project Daylight 🌞
 [![](https://files.catbox.moe/wcgnd2.jpg)](https://files.catbox.moe/ymdur3.mp4)
 
 A 3rd gen rebase token
