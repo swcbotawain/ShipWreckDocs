@@ -1,4 +1,4 @@
-# Bet Your Beans
+# Bet Your Beans 🔮
 ![](https://files.catbox.moe/06kz3k.png)
 
 A social experience app where you can bet on ANYTHING you like against friends or even strangers! Open a bet, share the QR code, define the terms, and lock the bet in! We take and hold the money agreed upon for a nominal fee until the terms of the bet are confirmed and the money paid back out to the winner
