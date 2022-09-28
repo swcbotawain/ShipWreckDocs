@@ -1,26 +1,32 @@
-# BlocVest
+# Integrity Coin 💳
 
-![](https://files.catbox.moe/pv21g6.jpg)
+[![](https://files.catbox.moe/919r9b.jpg)](https://files.catbox.moe/e0n3gi.mp4)
 
-An innovative ROI Dapp with 3 Vaults, 
+- ✅Doxxed team 
+- ✅KYC done 
+- ✅Contract audited
 
-Trickle Vault(similar to drip) daily apy - can be raised with nft's
-- Base 0.5%
-- Bronze 0.75%
-- Silver 1.0%
-- Gold 1.5%
-- Platinum 2.0%
+💥Up to 31% in BUSD reflections
 
-Accumulator Vault - Make weekly/biweekly/monthly deposits to earn up to 20% monthly
-weekly with payment made on time - 5%
-biweekly paid on time - 10%
-monthly paid on time - 20%
+💥📈$200,000 worth of investment secured for Forex Trading with more to come❗️📈
 
-Shareholder Vault - 50% of buy and sales taxes are converted to BUSD and automatically sent to this vault
-Stake tokens with 3 month lock to earn your share of 50% Tax Volume paid out every 30 days - prorated depending on entry
+StablePay - Payment platform allowing you to spend Stable coin 🎆
 
-All of our contracts were developed by Brewlabs
+🚀First revenue generating utility already in action❗️❗️
+
+Mastercard debit card💳
+✅Accepted worldwide
+✅Converts your chosen Cryptocurrency at point of sale
+
+Rewards will be based off bag size and paid in BUSD direct to your wallet💰
+
+💲💲$30K already paid to Holders since launch
+
+🚀Snap up as many Tegs whilst you can, sit back, relax and watch the BUSD rain 🌧💲💲you may find it in your wallet sooner than you think 😉😉🤑
+
+ℹ️Join the Integrity telegram for more information ℹ️
 
 ## Links
-- [Website](https://blocvest.io/)
-- [Telegram](https://t.me/BlocVaultOfficial)
+- [Website](https://integritycoin.co.uk/)
+- [Telegram](https://t.me/integritycoin)
+- [Chart](https://app.nexuscrypto.com/token/bsc/0xDaa604305fE12a0e2714E2794E1241071F85CdBA)
