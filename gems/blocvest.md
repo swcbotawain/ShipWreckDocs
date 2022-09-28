@@ -1,4 +1,4 @@
-# BlocVest
+# BlocVest 🏦
 
 ![](https://files.catbox.moe/pv21g6.jpg)
 
