@@ -1,4 +1,4 @@
-# GENIUS 
+# GENIUS 👨‍🎓
 [![](https://files.catbox.moe/u9lpm0.jpg)](https://files.catbox.moe/b0wb0n.mp4)
 
 The first hyper-yield A.I. blockchain Certificate of Deposit staking token designed to increase in value over time.  Genius will be used by end users to generate passive income and has been designed to mitigate human corruption and biased bureaucracy.
