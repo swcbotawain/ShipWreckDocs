@@ -3,7 +3,7 @@
 
 ## Spotlight Gems
 
-• 👨‍🎓[Genius](genius.md) - hyper-yield staking token
+- 👨‍🎓[Genius](genius.md) - hyper-yield staking token
 - 🔮[Bet Your Beans](byb.md) - social experience app where you can bet on anything you like
 - 🌞[Daylight](daylight.md) - building the 1st ever Web3 Casino with an ever-increasing price mechanism
 - 🏦[BlocVest](blocvest.md) - triple vault passive income generator
