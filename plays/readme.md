@@ -5,19 +5,20 @@ Looking for a quick flip? Want to get that inner degen out? Here are some additi
 
 ## Featured Play
 
-🐒 *Space Apes* potential ETH alpha play, chart pumping nicely. Utility reveal imminent
-[Telegram](https://t.me/SpaceApesERC) | [Chart](https://dexscreener.com/ethereum/0x01475F8d4e59b7b6Bd710a5558Fa3d3eb7B6206C)
+🎃*Pumptober* (ERC-20) 
+It is that time of the year again, when all hope in the simple degen life gets restored!
+Are you ready for the pump?
+[Telegram](https://t.me/pumptobertoken) | [Chart](https://dexscreener.com/ethereum/0x3D868E6f5ABFf786d82138388DB62fCe16F39BEC)
 
 ## Today's Tracked Projects for September 30th
 _Times are GMT_
 
-00:01|PP|0/30| [📲](https://www.pinksale.finance/launchpad/0xe270c55d1395a4ec8eed3525768dcbf683420041?chain=BSC) [Vaccine](https://t.me/CryptoSurvivorNft)
+`11:59|PP|2/3|` [📈](https://app.nexuscrypto.com/token/bsc/0x289a72776d457556c5d71b70a5c0f048c338244e)[📲](https://www.pinksale.finance/launchpad/0x277981eF2Ac7E019805Bd945cE1cc3768baDbDe9?chain=BSC) [CriptoSwap](https://t.me/CriptoSwapGlobal)
+`13:00|WL|2/2|` [📈](https://app.nexuscrypto.com/token/bsc/0xc9da9afce38bb586d914c29283f02dbef7aec282)[📲](https://www.pinksale.finance/launchpad/0x578A7B9a4928fC346843613da97f9752E610bA30?chain=BSC) [Elemental](https://t.me/elementaldungeon)
+`16:00|WL|0/0|` [📈](https://app.nexuscrypto.com/token/bsc/0x81402bdf885a930ccf2175b66fbd435486b33f69)[📲](https://www.pinksale.finance/launchpad/0xeb26b81D6A8cEdE205B5B0EEd25E9Ba795b74257?chain=BSC) [Polkastation](https://t.me/Polkastation_Discussions)
+`16:00|SB|3/3|` [📈](https://app.nexuscrypto.com/token/bsc/0xbbf424e626564bf034a250d32c8db8a863f5ba81)[📲](https://www.pinksale.finance/launchpad/0xF9E38914c3E7f419968fF07f7D4328dA1a23D097?chain=BSC) [Tripin](http://t.me/tripin_en)
+`17:00|WL|2/2|` [📈](https://app.nexuscrypto.com/token/bsc/0x82f32ba50263073ab97602d186ee921c56967ace)[📲](https://www.pinksale.finance/launchpad/0x6D2d1594613F95a7ba25f3fc1FD265bDD7f9C979?chain=BSC) [Bloodvania](https://t.me/Bloodvania)
 
-12:00|WL|5/20| [📈](https://app.nexuscrypto.com/token/bsc/0xc25d0ebbfc6e158cf64e94a354bef6d91992da4b)[📲](https://www.pinksale.finance/launchpad/0xA179446a193248F3dB5F05E2B5C7Aa8de6885eA0?chain=BSC) [ProjectDay](https://t.me/DaylightDeFi)
-
-14:00|SB|5/5| [📈](https://app.nexuscrypto.com/token/bsc/0x8829a4467ce1e9bb3cb4e29b48bfc2031e5da89f)[📲](https://www.pinksale.finance/launchpad/0xa7d6e81716bCAFD49246AC86705C496994b79efd?chain=BSC) [SifuInu](https://t.me/SifuInuPortal)
-
-18:00|SB|2/2| [📈](https://app.nexuscrypto.com/token/bsc/0x9f59e79127fad40bbc26c1ec6578d345af40bd1f)[📲](https://www.pinksale.finance/launchpad/0x55b29b6C4921F0506dE892d4E0BcAE7992df127F?chain=BSC) [SpookyHall](https://t.me/SpookyHalloweenFloki)
 
 **Today Launch List is provided by 3rd party**
 
