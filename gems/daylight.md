@@ -27,5 +27,3 @@ Pre-Sale soon - limited WL, don't miss out on the opportunity.
 - [Website](https://daylightprotocol.com/)
 - [Telegram](https://t.me/DaylightDeFi)
 - [Litepaper](https://daylight-protocol.gitbook.io/litepaper)
-- [Presale](https://bit.ly/3M1hCs9)
-- [WL Group - Serious Investors Only](https://t.me/+Adah-jus3xdmZTU1)
