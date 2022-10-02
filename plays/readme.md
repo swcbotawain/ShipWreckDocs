@@ -5,20 +5,27 @@ Looking for a quick flip? Want to get that inner degen out? Here are some additi
 
 ## Featured Play
 
-🎃*Pumptober* (ERC-20) 
-It is that time of the year again, when all hope in the simple degen life gets restored!
-Are you ready for the pump?
-[Telegram](https://t.me/pumptobertoken) | [Chart](https://dexscreener.com/ethereum/0x3D868E6f5ABFf786d82138388DB62fCe16F39BEC)
+💰*Risu Chain*: A highly scalable and secure blockchain platform with high speed up to 100k Tps and Nearly zero gas fee. 
+Utilities: Risu Swap, Risu Crosschain bridge, Risu Wallet, Risu Staking, and Risu Blockchain.
+[Telegram](https://t.me/RisuChain) | [Chart](https://app.nexuscrypto.com/token/bsc/0x8163100460d2186DE4e700C479D5e87283426D27) 
 
-## Today's Tracked Projects for September 30th
+## Today's Tracked Projects for October 2nd
 _Times are GMT_
 
-`11:59|PP|2/3|` [📈](https://app.nexuscrypto.com/token/bsc/0x289a72776d457556c5d71b70a5c0f048c338244e)[📲](https://www.pinksale.finance/launchpad/0x277981eF2Ac7E019805Bd945cE1cc3768baDbDe9?chain=BSC) [CriptoSwap](https://t.me/CriptoSwapGlobal)
-`13:00|WL|2/2|` [📈](https://app.nexuscrypto.com/token/bsc/0xc9da9afce38bb586d914c29283f02dbef7aec282)[📲](https://www.pinksale.finance/launchpad/0x578A7B9a4928fC346843613da97f9752E610bA30?chain=BSC) [Elemental](https://t.me/elementaldungeon)
-`16:00|WL|0/0|` [📈](https://app.nexuscrypto.com/token/bsc/0x81402bdf885a930ccf2175b66fbd435486b33f69)[📲](https://www.pinksale.finance/launchpad/0xeb26b81D6A8cEdE205B5B0EEd25E9Ba795b74257?chain=BSC) [Polkastation](https://t.me/Polkastation_Discussions)
-`16:00|SB|3/3|` [📈](https://app.nexuscrypto.com/token/bsc/0xbbf424e626564bf034a250d32c8db8a863f5ba81)[📲](https://www.pinksale.finance/launchpad/0xF9E38914c3E7f419968fF07f7D4328dA1a23D097?chain=BSC) [Tripin](http://t.me/tripin_en)
-`17:00|WL|2/2|` [📈](https://app.nexuscrypto.com/token/bsc/0x82f32ba50263073ab97602d186ee921c56967ace)[📲](https://www.pinksale.finance/launchpad/0x6D2d1594613F95a7ba25f3fc1FD265bDD7f9C979?chain=BSC) [Bloodvania](https://t.me/Bloodvania)
+*SalmonInu* [ 14:00 ]🛡️✅📄
+[Telegram](https://t.me/SalmonInu) | [Public Presale](https://www.pinksale.finance/launchpad/0x311eBa12C829D5aC55A981783F1dA3Eb2d4c7E1b?chain=BSC)
 
+*Golden Zone* [ 14:00 ]🛡️✅📄
+[Telegram](https://t.me/goldenzonegroup) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x7D8FcDd442f6203A31593087F6C7CBe2EC5ECb49?chain=BSC)
+
+*Hi-EndLand* [ 14:00 ]🛡️✅📄
+[Telegram](https://t.me/Hi_endLandGlobal) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x6DbD084386e2114175275f3E90543D070059C082?chain=BSC)
+
+*Spitz Chain* [ 14:00 ]🛡️✅📄
+[Telegram](https://t.me/SPCGlobal) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x8Be0e4B7b7056afEeEF541d4322a16733a1301B8?chain=BSC)
+
+*Zebra DAO* [ 17:00 ]✅📄
+[Telegram](https://t.me/zebradaobsc) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x013C9025C7cC64b6bf34CDc414430379f2cB2A40?chain=BSC)
 
 **Today Launch List is provided by 3rd party**
 
