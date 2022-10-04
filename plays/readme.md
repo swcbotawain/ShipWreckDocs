@@ -9,43 +9,25 @@ Looking for a quick flip? Want to get that inner degen out? Here are some additi
 Utilities: Risu Swap, Risu Crosschain bridge, Risu Wallet, Risu Staking, and Risu Blockchain.
 [Telegram](https://t.me/RisuChain) | [Chart](https://app.nexuscrypto.com/token/bsc/0x8163100460d2186DE4e700C479D5e87283426D27) 
 
-## Today's Tracked Projects for October 3rd
+## Today's Tracked Projects for October 4th
 _Times are GMT_
 
-*Symphony Finance* [ 08:00 ]✅📄
-[Telegram](https://t.me/SymphonyFinanceCM) | [Fairlaunch](https://www.pinksale.finance/launchpad/0xc26DA675D11D2794d65BEB63eD1a3a51Ab7029F5?chain=BSC)
-
-*Farm Tycoon* [ 11:00 ]🛡️✅📄
-[Telegram](https://t.me/FarmTycoon) | [Public Presale](https://www.pinksale.finance/launchpad/0x803665E3875ECF47Ef450E6BE462e2F17ac40e32?chain=BSC)
-
-*Planet Ape* [ 14:00 ]🛡️✅📄
-[Telegram](https://t.me/PlanetApeClub) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x3E0368473Ef62d70247B36BDFaFfC09827B01D27?chain=BSC)
-
-*DogeGoldFloki* [ 15:00 ]🛡️✅📄
-[Telegram](https://t.me/Doge_Gold_Floki) | [WL Presale](https://www.pinksale.finance/launchpad/0xF67e7359dBd414bD12cebCa96d5D42A660cfe099?chain=BSC)
-
-*ListenFi* [ 16:00 ]🛡️✅📄
-[Telegram](https://t.me/ListenFi) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x037bD3aea9661139ad1908F29b71794e94337d4f?chain=BSC)
-
-*Bloodvania* [ 17:00 ]🛡️✅📄
-[Telegram](https://t.me/Bloodvania) | [Launch](https://poocoin.app/tokens/0x82f32BA50263073aB97602d186Ee921C56967aCe)
-
-*Dogesino* [ 17:00 ]🛡️✅📄
-[Telegram](https://t.me/DogeSino_Official) | [Fairlaunch](https://irp.cdn-website.com/1b45ecb9/files/uploaded/Dogesino_AuditReport_InterFi.pdf)
-*World of Farms* [ 17:00 ]🛡️✅📄
-[Telegram](https://t.me/WorldOfFarms) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x3271231ca9F4B0003ebdaFfB7C927db4B259ADC5?chain=BSC)
-
-*SpookyHalloweenFloki* [ 18:00 ]✅📄
-[Telegram](https://t.me/SpookyHalloweenFloki) | [Launch](https://poocoin.app/tokens/0x9f59E79127fAD40bBC26c1eC6578d345AF40bD1f)
-*League of Pets* [ 19:00 ]✅📄
-[Telegram](https://t.me/leagueofpets) | [WL Presale](https://gempad.app/presale/0x21402aa07c9764B997Ee8476cBB33d37023f8116?chainId=56)
-
-*Blok Beach Club* [ 19:00 ]🛡️✅📄
-[Telegram](https://t.me/BlokOfficial) | [Fairlaunch](https://www.pinksale.finance/launchpad/0xb0066b31d915923F3a2ba598963182dC9a561566?chain=BSC)
-
-*MetaRuffy [ETH]* [ 20:00 ]✅📄
-[Telegram](https://t.me/metaruffy_international) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x9080892d77c0013FCd435cdd5b90C275d9b55998?chain=ETH)
-**Today Launch List is provided by 3rd party**
+- *Laeeb Football* [ 14:00 ]✅📄
+[Telegram](https://t.me/laeebfootball) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x1B5AA3675C83A919CA39F7c6607C3Bd1c59BA0df?chain=BSC)
+- *Hive Vault* [ 15:00 ]🛡️✅📄
+[Telegram](https://t.me/HiveVaultApp) | [Fairlaunch](https://www.pinksale.finance/launchpad/0xd7a6FAB0f25981bEBC209db454cE2B9D82F49c86?chain=BSC)
+- *Rafflet* [ 15:00 ]✅📄
+[Telegram](https://t.me/RAFFLET_Official) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x658d058D7C511f2D0812Be79d18Dc2ed91a9197b?chain=BSC)
+- *Laeeb WorldCup* [ 15:00 ]📄
+[Telegram](https://t.me/LaeebWorldCup) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x20be5bcf1f57825D4B4586EbEc0EB2e9ad9f6c3A?chain=BSC)
+- *Texas Protocol* [ 16:00 ]✅📄
+[Telegram](https://t.me/texasprotocolofficial) | [Fairlaunch](https://www.pinksale.finance/launchpad/0xb815E85C827a1c02c6116faAA1af6dBCE347aDef?chain=BSC)
+- *Meta Warriors* [ 17:00 ]✅📄
+[Telegram](https://t.me/metawarriors) | [WL Presale](https://gempad.app/presale/0x0d7612d4E64C03C8EA31C6600d1507c1e39867AF?chainId=56)
+- *Dartter* [ 21:00 ]🛡️✅📄
+[Telegram](https://t.me/dartter) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x6b290C1140212Ec087B78a58b739Ed5E04800C4c?chain=BSC)
+- *Reception* [ 23:30 ]✅📄
+[Telegram](https://t.me/ReceptionRightCoin) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x0741F45B139884939474cf2c2E21D415A1572873?chain=BSC)
 
 Please DYOR and only invest what you can afford to lose
 
