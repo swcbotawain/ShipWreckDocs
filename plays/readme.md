@@ -5,25 +5,24 @@ Looking for a quick flip? Want to get that inner degen out? Here are some additi
 
 ## Featured Play
 
-🧝‍♂️*Alvey Chain*:  a decentralised blockchain with a proof-of-stake consensus model, meaning that the author of the subsequent block is selected at random based on how much cryptocurrency they have in their wallet
-[Telegram](https://t.me/AlveyChain) | [Chart](https://app.nexuscrypto.com/token/bsc/0x256d1fce1b1221e8398f65f9b36033ce50b2d497)
+🔥*Kitsune* just hit an 11x at 700k ATH. A lot of bullish things in the works for Kitsune. Remember, Kitsune has 9 tails. Get ready for utility! 800+ in the TG. Community is forming nicely. One to keep an eye on.  
+[Telegram](https://t.me/KitsuneInuEntryPortal) 
+[Chart](https://dexscreener.com/ethereum/0x3be95c242b991ba83d143792a72fc17be8006bf9) 
 
-## Today's Tracked Projects for October 7th
+## Today's Tracked Projects for October 9th
 _Times are GMT_
 
-`02:00|SB|3/3|` [📈](https://poocoin.app/tokens/0x114d1f34d5050a930dc8fab30102c46b6dc37a81)[📲](https://www.pinksale.finance/launchpad/0x4dE04A90A1e9EdECE093D571ca341B7eF1f69c1B?chain=BSC) [AntNetworkX](https://t.me/antnetworx)
+- *Octopus* [ 14:00 ]
+[Telegram](https://t.me/OctopusGlobal) | [WL Presale](https://www.pinksale.finance/launchpad/0x23425e0ADd221D0C4Be2c80CA14f285C6466473E?chain=BSC)
+- *Planet Ape Club* [ 14:00 ]🛡️✅📄
+[Telegram](https://t.me/PlanetApeClub) | [Launch](https://poocoin.app/tokens/0x360857806FA520A5fFB74a3CA6E04253e48e7d16)
+- *Dream Soccer* [ 15:00 ]🛡️✅📄
+[Telegram](https://t.me/DreamSoccer_Global) | [Public Presale](https://www.pinksale.finance/launchpad/0x0f0bE49A0377E57316770630bAFb6ac1ECF4a280?chain=BSC)
+- *Talkado* [ 18:00 ]🛡️✅📄
+[Telegram](https://t.me/TalkadoFamily) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x891E9A0ab922320b61e6E8655cF8A0b250DFb2F5?chain=BSC)
+- *Bugatti Doge [Doge]* [ 20:00 ]🛡️✅📄
+[Telegram](https://t.me/BugattiDoge) | [Fairlaunch](https://www.pinksale.finance/launchpad/0xF70a81d3f89025CfcE1DcD98bd96091986d5F447?chain=DogeChain)
 
-`13:00|WL|8/8|` [📈](https://poocoin.app/tokens/0x6f6312245b45f96461b10647097187cc2cbdb374)[📲](https://www.pinksale.finance/launchpad/0x23Bbf4f0c4DF9697C5b267d4288562515E394A5E?chain=BSC) [FranceFan](https://t.me/FRA_Channel)
-
-`13:00|LA|0/5|` [📈](https://poocoin.app/tokens/0x84a22f4319926b85f47a33b5409cfd3e3e752a3a)[📲](https://www.pinksale.finance/launchpad/0x13f13E24c1eC56B5252686D6004e550a73Db5F4F?chain=BSC) [CryptoPitch](https://t.me/crypto_pitch)
-
-`14:00|VC|0/0|` [📈](https://t.me/ZLaunchBotOfficialChat)[📲](https://t.me/ZLaunchBotOfficialChat) [Connect AMA](https://t.me/ZLaunchBotOfficialChat)
-
-`17:00|PP|3/3|` [📈](https://poocoin.app/tokens/0xbec511e6f74989002aa2be18a651bfb290cd911d)[📲](https://www.pinksale.finance/launchpad/0xd49990a8192bbcd67d4BeD9Af6dde1116c1FafCb?chain=BSC) [EverChain](https://t.me/EverChainOfficial)
-
-`17:00|PP|0/0|`  [Metawarriors](https://t.me/metawarriors)
-
-`19:00|PV|0/7|`  [CradleOfSins](https://t.me/CradleOfSins)
 
 Please DYOR and only invest what you can afford to lose
 
