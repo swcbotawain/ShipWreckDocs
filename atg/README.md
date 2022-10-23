@@ -1,5 +1,6 @@
 # All Time Greats
 
+- 😈[CoZyMoA](cozymoa.md) - Real yield rewards and passive income NFTs
 - 💳[Integrity](integrity.md) - BUSD reflections from real world utilities
 - 🐘[Elephant](elephant.md) - long term yield and value generation
 - 🔴[DOI](doi.md):  help fix humanity's most challengeing problems 
