@@ -5,36 +5,41 @@ Looking for a quick flip? Want to get that inner degen out? Here are some additi
 
 ## Featured Play
 
-🪙*True Gold Token*: High-end utility project with BUSD rewards,  based not on token volume, but in real world gold mining volume.
-They have gold mines running, where the profit from will be paid out to the loyal holders.
-[Telegram](https://t.me/TrueGoldTokengroup) | [Chart](https://app.nexuscrypto.com/token/bsc/0x17f1b7f7d9bb1d17ce01561dc4de658d4c343910)
+🔥Jeethereum is a gas-optimized, hyper-deflationary Ethereum Reward Token built on Ethereum. With our 1% Onchain Burn per transaction we shrink the supply autonomous and create an ever rising price floor while rewarding holders in USDT 3% per transaction. NFT’s will add another Passive Income Stream. 
+[Telegram](https://t.me/jeethereumeth) | [Chart](https://dexscreener.com/ethereum/0x667f0ec32a1122bc1302217fcc2d0fd18024f2ec)
 
 
-## Today's Tracked Projects for October 27th
+## Today's Tracked Projects for October 29th
 _Times are GMT_
 
-- *PinkChain* [ 12:00 ]📄
-[Telegram](https://t.me/Pinkchain_chat) | [Public Presale](https://www.pinksale.finance/launchpad/0x5f8eBC34DcA87E4315E3eE83F0977df987682a24?chain=BSC)
-- *JerryMouse* [ 12:00 ]
-[Telegram](https://t.me/Pinkchain_chat) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x4881d4c1ae83dB9173d6f1bD0d6AbA3314F4e7D2?chain=BSC)
-- *Game Stake* [ 13:00 ]✅📄
-[Telegram](https://t.me/gamestakes) | [Launch](https://poocoin.app/tokens/0x0a85fDA537395b85082d4C3E1b0a885d2beADE75)
-- *SwoleDoge* [ 14:00 ]🛡️✅📄
-[Telegram](https://t.me/SwoleDogeChain) | [Public Presale](https://www.pinksale.finance/launchpad/0x4E7dd18a3e73B53356Aa265Ce4fEA06DD9df7257?chain=BSC)
-- *ByBet* [ 14:00 ]✅📄
-[Telegram](https://t.me/ByBetChat) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x3355F56db4e1035398fE2E56c81Eab0888Ca78eF?chain=BSC)
-- *Unileage* [ 15:00 ]✅📄
-[Telegram](https://t.me/UniLeagueOfficial) | [Public Presale](https://www.pinksale.finance/launchpad/0xCDA7dfD25e0593940456F37CB59e447fD86cD9A4?chain=BSC)
-- *GhostPad 🔚* [ 15:33 ]🛡️✅📄
-[Telegram](https://t.me/ghostpad) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x937e37321dfBEdaD788196759A35D83Ec530fE37?chain=BSC)
-- *HalloweenCrows* [ 16:00 ]🛡️✅📄
-[Telegram](https://t.me/halloweencrows) | [Fairlaunch](https://www.pinksale.finance/launchpad/0xEe65b619c603f68B8B87EB31CA98098f9430865F?chain=BSC)
-- *CryptoCup* [ 17:00 ]🛡️✅📄
-[Telegram](https://t.me/cryptocup_official) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x085e14D42c73FD283d6831FD3F4311B38888E407?chain=BSC)
-- *Beat Maker* [ 18:00 ]📄
-[Telegram](https://t.me/BeatMakerToken) | [Fairlaunch](https://www.pinksale.finance/launchpad/0xf456413ba7Ad4b5f272dc26325Deb1598aC2E9E4?chain=BSC)
-- *Astro* [ 22:00 ]🛡️✅📄
-[Telegram](http://t.me/AstroTokenABB) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x2382465D25cb8E6B4aE8716476BdBF1d81FB70B0?chain=BSC)
+- *Kunai* [ 12:00 ]
+[Telegram](https://t.me/KunaiGlobal) | [WL Presale](https://www.pinksale.finance/launchpad/0xB42747E3220943Fe2EAeE1D51e1aA4253814F203?chain=BSC)
+- *Sing 🔚* [ 13:00 ]📄
+[Telegram](https://t.me/sing_global) | [Public Presale](https://www.pinksale.finance/launchpad/0xaeB3fdA19cdF74d44e9c81c7ca8756619C5B02a3?chain=BSC)
+- *BlockXpress* [ 15:00 ]✅📄
+[Telegram](https://t.me/BlockXpress) | [WL Presale](https://gempad.app/presale/0xEa747a88C3FF0CDc9C58430893cE8cBb231b6462?chainId=56)
+- *GhostPad* [ 15:00 ]🛡️✅📄
+[Telegram](https://t.me/ghostpad) | [Launch](https://poocoin.app/tokens/0x8A5E29bD75F11231c700D19F22ee644036F822ff)
+- *HalloweenCup ⚠️* [ 15:00 ]
+[Telegram](https://t.me/HalloweenCupPortal) | Launch
+- *Spooky Meta* [ 15:00 ]✅📄
+[Telegram](https://t.me/spooky_meta_chat) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x9f6e34238a6Aa4e7aC6A90E92e547780C888dB75?chain=BSC)
+- *Anito Legends* [ 16:00 ]✅📄🙋‍♂️
+[Telegram](https://t.me/anitolegendsnft) | [Public Presale](https://www.pinksale.finance/launchpad/0x891392729e792Bd105d811750E6ca36512754BbE?chain=BSC)
+- *EternalFlow* [ 16:00 ]🛡️✅📄
+[Telegram](https://t.me/EternalFlowToken) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x54d9532f845Fb13bd0B10698e1123CC3942c22ab?chain=BSC)
+- *MetaSetGO* [ 17:00 ]🛡️✅📄
+[Telegram](https://t.me/MetaSetGo) | [WL Presale](https://www.pinksale.finance/launchpad/0xeb270A8a4B601b528a0d531D1096700017D3E304?chain=BSC)
+- *Gimba* [ 17:00 ]🛡️✅📄
+[Telegram](https://t.me/gimbametaverse) | [Fairlaunch](https://www.pinksale.finance/launchpad/0xADD99AF426689976273E48A8494255cE67d11D98?chain=BSC)
+- *Gama* [ 18:00 ]📄
+[Telegram](https://t.me/Gama_Metaverse) | [WL Presale](https://www.pinksale.finance/launchpad/0x03facA66747Fb1F4FD51AAa8183A08175D1Cf46F?chain=BSC)
+- *Beat Maker 🔚* [ 18:00 ]📄
+[Telegram](https://t.me/BeatMakerToken) | [Launch](https://www.pinksale.finance/launchpad/0xf456413ba7Ad4b5f272dc26325Deb1598aC2E9E4?chain=BSC)
+- *ForeverBurn🔚* [ 18:00 ]✅📄
+[Telegram](https://t.me/ForeverBurn_BSC) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x1ad7C6343454D0a8f583C5f274e7B82dBb44a901?chain=BSC)
+
+
 Please DYOR and only invest what you can afford to lose
 
 ## Key
