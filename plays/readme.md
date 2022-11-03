@@ -9,32 +9,18 @@ Looking for a quick flip? Want to get that inner degen out? Here are some additi
 80% of Tokens are locked or staked right now & NFTs offer long term utility and rewards
 [Telegram](https://t.me/ProXbsc) | [Chart](https://app.nexuscrypto.com/token/bsc/0x9d9fA9DbAe391C3FB6866F43De62FF3B393133b2) 
 
-## Today's Tracked Projects for November 2nd
+## Today's Tracked Projects for November 3rd
 _Times are GMT_
 
-- *Listenify* [ 12:00 ]✅📄
-[Telegram](https://t.me/Listenify_io) | [Launch](https://poocoin.app/tokens/0xb0B2d54802B018B393A0086a34DD4c1f26F3D073)
-- *Twit Web3* [ 12:15 ]
-[Telegram](https://t.me/Twit_Web_official) | [WL Presale](https://www.pinksale.finance/launchpad/0xAaDD3ba2cc6B44F5436F8fa591E59c024c644D26?chain=BSC)
-- *WorldCupChain* [ 14:00 ]📄
-[Telegram](https://t.me/fifaworldcupchain) | [WL Presale](https://www.pinksale.finance/launchpad/0xFd5b43EDEdD15093B97C985c587427242BF2a654?chain=BSC)
-- *ByBet 🔚* [ 14:00 ]✅📄
-[Telegram](https://t.me/ByBetChat) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x3355F56db4e1035398fE2E56c81Eab0888Ca78eF?chain=BSC)
-- *CyberDoge* [ 15:00 ]📄
-[Telegram](https://t.me/CyberDogeBsctoken) | [WL Presale](https://www.pinksale.finance/launchpad/0x61cd92380e134B85d790c69bc20e047bCd06bb65?chain=BSC)
-- *Unileage 🔚* [ 15:00 ]✅📄
-[Telegram](https://t.me/UniLeagueOfficial) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x926177838c853cb71Ff841aeb55Bb7449dB187b9?chain=BSC)
-- *Snapy* [ 16:00 ]🛡️✅📄
-[Telegram](https://t.me/snapyportal) | [Fairlaunch](https://www.pinksale.finance/launchpad/0xA0F15248e6d1D5CB1dD10CdC50569cbdb3555bFF?chain=BSC)
-- *Shiba Burn Tribe* [ 17:00 ]🛡️✅📄
-[Telegram](https://t.me/shibaburntribe) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x4Be0e1E097Daa539Be80Fa955dB42c72a4702592?chain=BSC)
-- *CallerInu [ETH]* [ 18:00 ]🛡️✅📄🙋‍♂️
-[Telegram](https://www.pinksale.finance/launchpad/0x20Aa18A09aB19f3Ca3873363A913ED76d9D5FDaa?chain=ETH) | [Fairlaunch](https://pinksale.notion.site/CallerInu-KYC-Verification-ee51324b57e54dbf9cc21fef19338d93)
-- *Ye 2024 🔚* [ 19:00 ]✅📄
-[Telegram](https://t.me/YE2024GLOBAL) | [Fairlaunch](https://www.pinksale.finance/launchpad/0xAa1654426CF6AEE7c2E34f90b5f46826183A2609?chain=BSC)
-- *MinerDoge* [ 20:00 ]
-[Telegram](https://t.me/MinerDogeChat) | [Public Presale](https://www.pinksale.finance/launchpad/0xBcDA2b168AD1219b20aA220bbF6522af91dae5F3?chain=BSC)
 
+- 14:00|LA|5/15| [📈](https://app.nexuscrypto.com/token/bsc/0x3545f97a768d6e165a7395e5509aa4cf0708e239)[📲](https://www.pinksale.finance/launchpad/0x3355F56db4e1035398fE2E56c81Eab0888Ca78eF?chain=BSC) [ByBet](https://t.me/ByBetChat)
+- 14:00|LA|0/0| [📈](https://app.nexuscrypto.com/token/bsc/0xfe155d70c80382f746d8c6aed63d32cb2d013999)[📲](https://www.pinksale.finance/launchpad/0xFd5b43EDEdD15093B97C985c587427242BF2a654?chain=BSC) [FifaWorldCup](https://t.me/fifaworldcupchain)
+- 15:00|WL|1/2| [📈](https://app.nexuscrypto.com/token/bsc/0xc7847bff502dc1829bc9159435a069c4b4c32aca)[📲](https://www.pinksale.finance/launchpad/0x95CB2dEC91c1b5D545Ec0Dc08111a4B1082dF0D4?chain=BSC) [TravelLine](https://t.me/Traveline_meta)
+- 15:00|FL|5/5| [📈](https://app.nexuscrypto.com/token/bsc/0xca7747eaad972a9be1acd3922ed1e12112483872)[📲](https://www.pinksale.finance/launchpad/0x977DAfCA37545405Ee5CA7CC51F8dc60AAe3E0EB?chain=BSC) [EverEscrow](https://t.me/everescrowcoinofficial)
+- 17:00|FL|0/5| [📈](https://app.nexuscrypto.com/token/bsc/0x7c6663367f1a5fafff37ec36290ccd5fe67f2bdf)[📲](https://www.pinksale.finance/launchpad/0x308d04A15647EBb449D9744eB41DBF456350B5f9?chain=BSC) [RunBurn](https://t.me/runandburn3)
+- 17:00|FL|1/1| [📈](https://app.nexuscrypto.com/token/bsc/0x2d716831d82d837c3922ad8c10fe70757b5814fe)[📲](https://www.pinksale.finance/launchpad/0x596C982625116394728a2789E269F3A15f4e1922?chain=BSC) [Fortuneum](https://t.me/FortuneumOfficial)
+- 17:30|FL|3/3| [📈](https://app.nexuscrypto.com/token/bsc/0xe00748a31f14eb8fdbbaa77e177480bf8dbef48d)[📲](https://www.pinksale.finance/launchpad/0x1b9d89AfE36514208e21E38edDe2e7d35d0fF07c?chain=BSC) [ZombieRunner](https://t.me/zombierunnerBSC)
+- 19:00|LA|1/1| [📲](https://www.pinksale.finance/launchpad/0x9063e9619683872ac9d799953304d01Ff03184bF?chain=ETH) [ShoshinInu (ETH)](https://t.me/ShoshinInu)
 
 Please DYOR and only invest what you can afford to lose
 
