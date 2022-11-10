@@ -8,15 +8,33 @@ Looking for a quick flip? Want to get that inner degen out? Here are some additi
 🤖NeuraLink: the mission will be to develop and acquire AI that will help give us the social and financial advantage in todays crypto market. This AI will allow for marketing funds to be utilized towards new technology that will give NeuraLink an advantage over the competition and continue to grow both socially and financially in todays hyper competitive atmosphere.
 [Telegram](https://t.me/Neuralink_Community) | [Chart](https://dexscreener.com/ethereum/0xd1b3460f28681464d2b5cee4e71bb332c429ec1c)
 
-## Today's Tracked Projects for November 7th
+## Today's Tracked Projects for November 10th
 _Times are GMT_
 
-- 13:00|WL|4/4| [📈](https://app.nexuscrypto.com/token/bsc/0x4947def3e153a88012e8d9e300d99771658c1613)[📲](https://www.pinksale.finance/launchpad/0xa06d0f5E34068Cf073186f7325D058c54966A00f?chain=BSC) [WorldCup](https://t.me/WCPartyOfficial)
-- 13:00|WL|0/6| [📈](https://app.nexuscrypto.com/token/bsc/0x52087c2e0988e6fdf4a606c8074cfecad6fe0fb7)[📲](https://www.pinksale.finance/launchpad/0xEe2C31C3063A000B6968F90eF2E52e8F8c14dB5b?chain=BSC) [BabyHashFlow](https://t.me/BabyHashFlow)
-- 14:00|LA|6/6| [📈](https://app.nexuscrypto.com/token/bsc/0x000000000e2e41d0fd6c302a8fc212ec53ccb45c)[📲](https://www.pinksale.finance/launchpad/0x0FacBc17362BA3db69F5Dbc6554b0aC83fa6A56b?chain=BSC) [BadBunny](https://t.me/BadBunnyANN)
-- 14:38|LA|6/6| [📈](https://app.nexuscrypto.com/token/bsc/0x40a1a7114921aaaa9d9046bdcfd670ffe9fd1e72)[📲](https://www.pinksale.finance/launchpad/0x71848E5318F91e56c31DB25E55BB3053A481C792?chain=BSC) [BlackPitBull](https://t.me/BPTOfficialGroup)
-- 15:00|PP|0/0| [📈](https://app.nexuscrypto.com/token/bsc/0x5ce56414323e9f369a091fb2103a9bafdea3a204)[📲](https://www.pinksale.finance/launchpad/0xFb8d54001E31347987274F0411876E44a94AB94F?chain=BSC) [FlokiQatari](https://t.me/FlokiQatari)
-- 17:00|LA|0/0| [📈](https://app.nexuscrypto.com/token/bsc/0x277ae79c42c859ca858d5a92c22222c8b65c6d94)[📲](https://www.pinksale.finance/launchpad/0x2382465D25cb8E6B4aE8716476BdBF1d81FB70B0?chain=BSC) [Astro](https://t.me/AstroTokenABB)
+- *Benyke* [ 08:00 ]✅📄
+[Telegram](https://t.me/Benykefxdiscussion) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x1E5Ec1c0a96a719E03925Edd6F9Ae39F2a466115?chain=BSC)
+- *ScamCoin* [ 12:00 ]✅📄
+[Telegram](https://t.me/SCAMCOINART) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x51c50a24338c88f76d827458B17c801691Bb950a?chain=BSC)
+- *NewpolitonDog* [ 13:00 ]📄
+[Telegram](https://t.me/newpolitondog) | [WL Presale](https://www.pinksale.finance/launchpad/0xe83582589c1281c061B5a84e3f148789dBCE17Eb?chain=BSC)
+- *AnyBuy 🔚* [ 13:00 ]✅📄
+[Telegram](https://t.me/Anybuy_Community) | [Fairlaunch](https://www.pinksale.finance/launchpad/0xdFc7a8Faf6016E72D33d8D5B0960C27D0A97CA3A?chain=BSC)
+- *MusicFi 🔚* [ 14:00 ]🛡️✅📄
+[Telegram](https://t.me/MusicFi_official_portal) | [Public Presale](https://www.pinksale.finance/launchpad/0x2Bd28E89B82516D6EcBA4086aAb976ee6a589ba4?chain=BSC)
+- *Eternity* [ 15:00 ]🛡️✅📄
+[Telegram](https://t.me/EternityProtocol) | [Launch](https://poocoin.app/tokens/0x475D9dCd1f6c6E015A499F9BF675FCFCc9C1349E)
+- *MonsterProtocol* [ 16:00 ]🛡️✅📄
+[Telegram](https://t.me/monsterprotocol) | [Fairlaunch](https://www.pinksale.finance/launchpad/0xf6232C245C65b01e6201A606B76e8207554723a0?chain=BSC)
+- *GodWars 🔚* [ 16:00 ]🛡️✅📄
+[Telegram](https://t.me/GodWars_Portal) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x045F80a8712759296c768e7DCC4cffD84ABe64D2?chain=BSC)
+- *Luna Maniacs* [ 17:00 ]🛡️✅📄
+[Telegram](https://t.me/LunaManiacsCoin) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x5c1e899DA3032529FB56FA972C0F2BB3caF7336b?chain=BSC)
+- *MetaZombie* [ 17:00 ]✅📄
+[Telegram](https://t.me/metazombietoken) | [Fairlaunch](https://www.pinksale.finance/launchpad/0xe62fA3d984c3029B65c2E85e14e6A87BDabB188b?chain=BSC)
+- *Pure Wallet 🔚* [ 18:00 ]🛡️✅📄
+[Telegram](https://t.me/PureWalletOfficial) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x22c52aB855Bafb1c3F24CeF02cf966Ae26979827?chain=BSC)
+- *Crypto Strike* [ 19:30 ]✅📄
+[Telegram](https://t.me/CryptoStrikePortal) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x36F6b6aA17a7Fa72eCF974E29046F139151daB52?chain=BSC)
 
 Please DYOR and only invest what you can afford to lose
 
