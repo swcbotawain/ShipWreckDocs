@@ -5,8 +5,9 @@ Looking for a quick flip? Want to get that inner degen out? Here are some additi
 
 ## Featured Play
 
-🛳*Digital Yacht Coin* is not just a game for traditional blockchain users, but a way to introduce blockchain to gamers. With Digital Yacht Coin, players can own and monetize their gaming experience on the Ethereum blockchain, the platform's utility token. 
-[Telegram](https://t.me/digitalyacht) | [Chart](https://dexscreener.com/ethereum/0x4b01d7625579b72eb2465dc043afe6e0c972eaa1)
+🌀*DiveWallet* isn't your ordinary crypto wallet.
+We know just how difficult web3 can be to learn, so we bring a variety of features to the table to make crypto trading safer and easier, helping both new and old investors alike.
+[Telegram](http://t.me/DiveWallet) | [Chart](https://app.nexuscrypto.com/token/bsc/0x4b7d697635e6b9965d13e0655F538149dE425F4E)
 
 ## Today's Tracked Projects for November 11th
 _Times are GMT_
