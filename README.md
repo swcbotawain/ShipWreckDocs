@@ -1,6 +1,6 @@
 # Welcome
 
-![ShipWreck Cove](https://files.catbox.moe/qup7ee.jpg) 
+![ShipWreck Cove](https://files.catbox.moe/9axtzs.png) 
 
 Welcome **ShipWreck Cove** 
 
