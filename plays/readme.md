@@ -5,27 +5,30 @@ Looking for a quick flip? Want to get that inner degen out? Here are some additi
 
 ## Featured Play
 
+*NEXUSPAD PROTOCOL* is the first multi-chain launchpad in the blockchain space, founded by some of the most prominent individuals in the industry,focused on creating, implementing and developing startups, in addition to most advance Staking V2 and Farming V2 mechanism 
+[Telegram](https://t.me/NexusPad) | [Chart](https://poocoin.app/tokens/0xefdb93e14cd63b08561e86d3a30aae0f3aabad9a) 
 
-🦌*Rudoshi* - Santa's Favourite Shiba Helper!
-Brought to you by team members of:
-Croshi Inu - $2.4M ATH
-SquidBoss - $300K ATH
-Come join us for our journey to the millions!
-[Telegram](https://t.me/RudoshiERC20) | [Chart](https://dexscreener.com/ethereum/0xD887aD8bEAF5E5814e302317859C0a37C5443142)
-
-## Today's Tracked Projects for November 28th
+## Today's Tracked Projects for November 29th
 _Times are GMT_
 
-- `10:00|PP|0/0|` [📈](https://poocoin.app/tokens/0x72b5bace0bf8952fdb0ae9cc8d78301310a5f381)[📲](https://www.pinksale.finance/launchpad/0x9C3F02D279dAae9739699117182284D30325cA61?chain=BSC) [CryptoXSeed](https://t.me/CryptoXSeed)
-- `12:00|LA|0/0|` [📈](https://poocoin.app/tokens/0x3e0a49a133df64be052b5b53e21571b94d0770a6)[📲](https://kingdomstarter.io/launchpad/completed/goatfi) [GoatFi](https://t.me/goatfinft)
-- `12:29|LA|3/3|` [📈](https://poocoin.app/tokens/0x9fe41f1a5c3305282730bd97bfa06e4e8647cfb7)[📲](https://www.pinksale.finance/launchpad/0xaeDc4a353701D355b29eA0e7b796117Cbf2508c4?chain=BSC) [FifaDoge](https://t.me/fifadogechannel)
-- `14:00|LA|0/3|` [📈](https://poocoin.app/tokens/0xefdb93e14cd63b08561e86d3a30aae0f3aabad9a)[📲](https://www.pinksale.finance/launchpad/0x98dDF25e4Cb4d505d000531485017b01CD8110a1?chain=BSC) [NexusPad](https://t.me/NexusPad)
-- `15:00|PP|6/6|` [📈](https://poocoin.app/tokens/0xe4e10a016fba6a5184cedc61e439245508f6c41e)[📲](https://www.pinksale.finance/launchpad/0x18968b1f6dCFa79e347D6cDaf3eA9AD5021B2728?chain=BSC) [EuroShiba](https://t.me/EuroShibaInuHolders)
-- `16:00|FL|5/5|` [📈](https://poocoin.app/tokens/0x2655aeb951fa7937f0480278e52893d211169edf)[📲](https://www.pinksale.finance/launchpad/0x4b30a6d24209DC64e5eC08a02496ffd668DD1A12?chain=BSC) [FuckFTX](https://t.me/FUCKFTX_Channel)
-`17:00|FL|6/6|` [📈](https://poocoin.app/tokens/0x8106789b240e5e1b34643c052f1dc1b7a1a451a5)[📲](https://www.pinksale.finance/launchpad/0x502467f1395EE14152672E167294cdF6B9093aEB?chain=BSC) [KasaCentral](https://t.me/KasaCentralPortal)
-- `18:00|VC|0/0|` [📈](https://t.me/ZLaunchBotOfficialChat)[📲](https://t.me/ZLaunchBotOfficialChat) [JDB AMA](https://t.me/ZLaunchBotOfficialChat)
-- `21:00|LA|5/6|` [📈](https://poocoin.app/tokens/0x305bbd18f9a3b55047740843889521722dab1fde)[📲](https://www.pinksale.finance/launchpad/0x9BA5d8Ca1E9ECDA814b544679571A8509327C759?chain=BSC) [Arora](https://t.me/aroraglobalofficial)
-- `23:00|LA|9/9|` [📲](https://gempad.app/presale/0xeE32AefeB41678d750FD794B11403b0d3113509B?chainId=1) [Metatate (ETH)](https://t.me/metatateapp)
+- *Atlas Navi* [ 12:00 ]
+[Telegram](https://t.me/AtlasNaviApp) | [Launch](https://t.me/AtlasNaviApp)
+- *FuckFTX* [ 13:00 ]✅📄
+[Telegram](https://t.me/FUCKFTX_Channel) | [Launch](https://poocoin.app/tokens/0x2655aeB951FA7937f0480278e52893D211169edf)
+- *DreamFactory* [ 14:00 ]✅📄
+[Telegram](https://t.me/DreamFactoryDao) | [WL Presale](https://gempad.app/presale/0xFf5738461e1Df18Da9a7cD72091065Ca2273948b?chainId=56)
+- *Metavill* [ 14:00 ]🛡️✅📄
+[Telegram](https://t.me/metavillann) | [Fairlaunch](https://www.pinksale.finance/launchpad/0xeE7f8687e9693Db34b8101DE2f58d093a89f1FFd?chain=BSC)
+- *BUSDTR* [ 15:00 ]✅📄
+[Telegram](https://t.me/busdtrcoin) | [Public Presale](https://www.pinksale.finance/launchpad/0x85EaA48Bd91974aec2277f800061E9Ad6DD24d82?chain=BSC)
+- *UFCL* [ 15:00 ]🛡️✅📄
+[Telegram](https://t.me/ultimatefanclub) | [Fairlaunch](https://www.pinksale.finance/launchpad/0xF21E3Cb00D389Ae2410b3Bd45084aff274C3f72A?chain=BSC)
+- *Kasa Central* [ 17:00 ]🛡️✅📄
+[Telegram](https://t.me/KasaCentralPortal) | [Launch](https://poocoin.app/tokens/0x8106789b240e5e1b34643c052f1dc1b7a1a451a5)
+- *CryptoCentipede* [ 17:40 ]✅📄
+[Telegram](https://t.me/cryptocentipedeio) | [Fairlaunch](https://www.pinksale.finance/launchpad/0xDbEF9a351a9ee60b4c7E292a2a3A224153C25C9e?chain=BSC)
+- *WM Cash* [ 22:22 ]✅📄
+[Telegram](https://t.me/wmcashToken) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x16c59BB4C3d64c096899B40aE7baF37E9a63Fe55?chain=BSC)
 
 Please DYOR and only invest what you can afford to lose
 
