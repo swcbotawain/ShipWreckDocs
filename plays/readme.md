@@ -5,30 +5,38 @@ Looking for a quick flip? Want to get that inner degen out? Here are some additi
 
 ## Featured Play
 
-*Santa Chad*: Any Chad who can hold there bag for over 7 days at any point before now and x-mas will be put on the 
-NICE LIST. Nice listed wallets will share in 4% of the total Santa Chad volume between now and Christmas morning.
-[Telegram](https://t.me/santachadportal) | [Chart](https://www.geckoterminal.com/bsc/pools/0x33AC1234ECf60DbBEaAa0bdb4670b94C44E79735?utm_source=telegram&utm_medium=shipwreckcove&utm_campaign=shipwreckove)
+⚡️ *NITRO* is a Web 3.0 reward-based fitness application with Game-Fi, Social-Fi and Fit-Fi aspects. 🏆 Participate in various fitness activities: 🏃‍♂️ running, 🚴‍♂️ cycling, 🤾‍♂️ jumping or 🏊‍♀️ swimming and earn rewards
+[Telegram](https://t.me/Nitro_Global_Chat) | [Chart](https://www.dextools.io/app/en/bnb/pair-explorer/0x2fb71d0857520b969d694f0ad38cfffd32feb795)
 
-## Today's Tracked Projects for November 30th
+## Today's Tracked Projects for December 1st
 _Times are GMT_
 
-- *Dartter* [ 10:00 ]🛡️✅📄
-[Telegram](https://t.me/dartter) | [Fairlaunch](https://www.pinksale.finance/launchpad/0xE7b65E98b94A87A1B9a3D9720378194bc9f257F7?chain=BSC)
-- *BlackRabbit* [ 12:00 ]
-[Telegram](https://t.me/BlackRabbitOffical) | [WL Presale](https://www.pinksale.finance/launchpad/0x6e9995Ea52f83076f523db5a520e805b5A2dFDB9?chain=BSC)
-- *Reborn Rabbit* [ 13:00 ]✅📄
-[Telegram](https://t.me/rebornrabbit) | [WL Presale](https://www.pinksale.finance/launchpad/0x6641cd9d367C06916246001248BFE400bb2F9340?chain=BSC)
-- *Santa Coin* [ 14:00 ]✅📄
-[Telegram](https://t.me/santacoinbusd) | [WL Presale](https://www.pinksale.finance/launchpad/0x82EC2Aa19b601AB611B1a01dc5A5E84442a6fCfE?chain=BSC)
-- *NegativeTax 🔚* [ 16:00 ]🛡️✅📄
-[Telegram](https://t.me/NegativeTax) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x655847879D20842e54cD360e672A245d264D3c1d?chain=BSC)
-- *Homie Wars* [ 17:00 ]✅📄
-[Telegram](https://t.me/homiewars) | [WL Presale](https://cookiesale.io/launchpad/0xa6A2Ea2a9148A62CdEB69E1433E247981FF2958E?chain=BSC)
-- *Bomberzilla* [ 18:00 ]✅📄
-[Telegram](https://t.me/BomberZillaOfficial) | [Public Presale](https://www.pinksale.finance/launchpad/0x78Ad6670b6C8ab549897b122B1328444499dE1dc?chain=BSC)
-- *Fenomy [ETH]* [ 20:00 ]
-[Telegram](https://t.me/fenomy_investments_group_en) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x06E6A1B120A2aC0e7788809892bF9AA4911BE9E4?chain=ETH)
-
+- *Emoves* [ 11:00 ]📄
+[Telegram](https://t.me/EmovesOfficial) | [Public Presale](https://www.pinksale.finance/launchpad/0xe0f4c89Ef106Ac970989DD644660008033CDc75d?chain=BSC)
+- *Hope* [ 12:00 ]
+[Telegram](https://t.me/HOPEfc) | [WL Presale](https://www.pinksale.finance/launchpad/0xfB893B314c14057b780afb9E376E3c3DDC900AB8?chain=BSC)
+- *PlanetCats* [ 13:12 ]✅📄
+[Telegram](https://t.me/catcoin) | [WL Presale](https://gempad.app/presale/0x68f51368DDDf6c8871E5f871C10A4E94FE9997c0?chainId=56)
+- *NegativeTax* [ 14:00 ]🛡️✅📄
+[Telegram](https://t.me/NegativeTax) | [Launch](https://poocoin.app/tokens/0x31a9975f71f53d5cdeb4bf4a48b3857e3827d487)
+- *Black Wallet* [ 15:00 ]✅📄🙋‍♂️
+[Telegram](https://t.me/Blackwalletproject) | [Fairlaunch](https://www.pinksale.finance/launchpad/0xA0171fE416d4DadB4f669E66aD0667866C57D427?chain=BSC)
+- *UFCL 🔚* [ 15:30 ]🛡️✅📄
+[Telegram](https://t.me/ultimatefanclub) | [Fairlaunch](https://www.pinksale.finance/launchpad/0xF21E3Cb00D389Ae2410b3Bd45084aff274C3f72A?chain=BSC)
+- *Blue Sapphire* [ 17:00 ]✅📄
+[Telegram](https://t.me/bstokens_official) | [Public Presale](https://www.pinksale.finance/launchpad/0xE61682795028383edE69bD9f609dA0021A372242?chain=BSC)
+- *Balto [ETH]* [ 18:00 ]📄
+[Telegram](https://t.me/baltotokenofficial) | [Public Presale](https://gempad.app/presale/0xc509553AFD80e1d399F30dFd8d0B9fc80986FABB?chainId=1)
+- *FifaFanBattle* [ 18:00 ]📄
+[Telegram](https://t.me/FIFAFanBattle_Club) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x06FF74D83FAeb8a14c0A6d98d3Ef267F05A4f53A?chain=BSC)
+- *SpaceDex* [ 19:00 ]✅📄🙋‍♂️
+[Telegram](https://t.me/SpaceDEX_ENG) | [WL Presale](https://www.pinksale.finance/launchpad/0x3e90136969251656B0F5fc58EDE748660E8A2025?chain=BSC)
+- *Coinology* [ 19:00 ]✅📄
+[Telegram](https://t.me/coinologyhub) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x2d09caCefe29d0797E7DBC747C01Add887fE34de?chain=BSC)
+- *BlueTick* [ 19:00 ]✅📄
+[Telegram](https://t.me/BlueTickClub) | [Fairlaunch](https://www.pinksale.finance/launchpad/0x742f7aFCb0600222C6c55c99F7A546998776Dd0d?chain=BSC)
+- *SpinCoin 🔚* [ 23:00 ]✅📄
+[Telegram](https://t.me/SpincoinEntry) | [Fairlaunch](https://www.pinksale.finance/launchpad/0xa1268754cF26FA5433e3D9165dD6080031Ea2982?chain=BSC)
 
 Please DYOR and only invest what you can afford to lose
 
